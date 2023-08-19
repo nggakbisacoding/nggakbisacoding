@@ -37,7 +37,7 @@
 <a href="https://instagram.com/nod_nor/" target="_blank">
 <img src=https://img.shields.io/badge/instagram-%23000000.svg?&style=for-the-badge&logo=instagram&logoColor=white alt=instagram style="margin-bottom: 5px;" />
 </a>
-<a href="https://medium.com/-" target="_blank">
+<a href="https://medium.com/@fandead" target="_blank">
 <img src=https://img.shields.io/badge/medium-%23292929.svg?&style=for-the-badge&logo=medium&logoColor=white alt=medium style="margin-bottom: 5px;" />
 </a>  
 </div>  
@@ -75,7 +75,6 @@
 <h3 align="center">Deep Learning</h3>
 <div align="center">  
 <a href="https://keras.io/" target="_blank"><img style="margin: 10px" src="https://profilinator.rishav.dev/skills-assets/keras.png" alt="Keras" height="50" /></a>  
-<a href="https://unity.com/" target="_blank"><img style="margin: 10px" src="https://profilinator.rishav.dev/skills-assets/unity.png" alt="Unity" height="50" /></a>
 <a href="https://www.tensorflow.org/" target="_blank"><img style="margin: 10px" src="https://profilinator.rishav.dev/skills-assets/tensorflow-icon.svg" alt="TensorFlow" height="50" /></a>  
 <a href="https://pytorch.org/" target="_blank"><img style="margin: 10px" src="https://profilinator.rishav.dev/skills-assets/pytorch-icon.svg" alt="pytorch" height="50" /></a>  
 </div>
@@ -94,7 +93,7 @@
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
-- Make AI model from keras
+- Make AI model from keras and train it using NLP method
 - Upgrade PC for developing AI model
 - I'm interested in Artificial Neural Networks (ANN) especially developing Neural Networks
 - there are many things that I want to do in the future and all of them are related to machine learning so I need to deepen my understanding of algebraic objects
