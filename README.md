@@ -84,10 +84,12 @@
 </div>
 
 
-
-
 ## 📈 Github Stats  
 <div align="center"><img src="https://github-readme-stats.vercel.app/api/top-langs/?username=nggakbisacoding&hide_border=true&layout=compact" align="center" /></div>  
+
+## 🏷 Novel Fav Updated
+<!-- BLOG-POST-LIST:START -->
+<!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
 - Make AI model from keras
