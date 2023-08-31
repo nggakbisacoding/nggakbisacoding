@@ -58,11 +58,11 @@
 
 ## 🏷 Novel Fav Updated
 <!-- BLOG-POST-LIST:START -->
-- [Otome Game no Heroine de Saikyou Survival Bahasa Indonesia Illustrations Volume 5](https://www.ruenovel.com/2023/08/ otome-game-no-heroie-illustrations-volume5.html)
-- [Otome Game no Heroine de Saikyou Survival Bahasa Indonesia Illustrations Volume 4](https://www.ruenovel.com/2023/08/ otome-game-noheroine-illustrations-volume4.html)
-- [Otome Game no Heroine de Saikyou Survival Bahasa Indonesia Illustrations Volume 3](https://www.ruenovel.com/2023/08/ otome-game-no-heroine-illustrations-volume3.html)
-- [Otome Game no Heroine de Saikyou Survival Bahasa Indonesia Illustrations Volume 2](https://www.ruenovel.com/2023/08/ otome-gameno-heroine-illustrations-volume2.html)
-- [Otome Game no Heroine de Saikyou Survival Bahasa Indonesia Illustrations Volume 1](https://www.ruenovel.com/2023/08/ otome-game-no-heroine-illustrations-volue1.html)
+- [Otome Game no Heroine de Saikyou Survival Bahasa Indonesia Volume 5 LN](https://www.ruenovel.com/2023/08/otome-game-no-heroinde-vol5-LN.html)
+- [Otome Game no Heroine de Saikyou Survival Bahasa Indonesia Volume 4 LN](https://www.ruenovel.com/2023/08/otome-game-no-heroind-vol4-LN.html)
+- [Otome Game no Heroine de Saikyou Survival Bahasa Indonesia Volume 3 LN](https://www.ruenovel.com/2023/08/otome-game-no-heroinde-vol3-LN.html)
+- [Otome Game no Heroine de Saikyou Survival Bahasa Indonesia Volume 2 LN](https://www.ruenovel.com/2023/08/otome-game-noheroinde-vol2-LN.html)
+- [Otome Game no Heroine de Saikyou Survival Bahasa Indonesia Volume 1 LN](https://www.ruenovel.com/2023/08/otome-game-no-heroinde-vol1-LN.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
