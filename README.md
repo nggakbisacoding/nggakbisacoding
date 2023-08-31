@@ -58,11 +58,11 @@
 
 ## 🏷 Novel Fav Updated
 <!-- BLOG-POST-LIST:START -->
-- [Otome Game no Heroine de Saikyou Survival Bahasa Indonesia Download](https://www.ruenovel.com/2023/08/tome-game-no-heroine-de-saikyou-download-pdf.html)
-- [Gimai Seikatsu Jilid 9 Bab 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/08/gimai-seikatsu-jilid-9-bab-2-bahasa.html)
-- [Roshidere Jilid 7 Ilustrasi](https://zerokaito.blogspot.com/2023/08/roshidere-jilid-7-ilustrasi.html)
-- [Otonari no Tenshi-sama Jilid 7 Bab 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/08/otonari-no-tenshi-sama-jilid-7-bab-5.html)
-- [Dating Story Volume 4 Chapter 2.5](https://zerokaito.blogspot.com/2023/08/dating-story-volume-4-chapter-25.html)
+- [Otome Game no Heroine de Saikyou Survival Bahasa Indonesia Illustrations Volume 5](https://www.ruenovel.com/2023/08/ otome-game-no-heroie-illustrations-volume5.html)
+- [Otome Game no Heroine de Saikyou Survival Bahasa Indonesia Illustrations Volume 4](https://www.ruenovel.com/2023/08/ otome-game-noheroine-illustrations-volume4.html)
+- [Otome Game no Heroine de Saikyou Survival Bahasa Indonesia Illustrations Volume 3](https://www.ruenovel.com/2023/08/ otome-game-no-heroine-illustrations-volume3.html)
+- [Otome Game no Heroine de Saikyou Survival Bahasa Indonesia Illustrations Volume 2](https://www.ruenovel.com/2023/08/ otome-gameno-heroine-illustrations-volume2.html)
+- [Otome Game no Heroine de Saikyou Survival Bahasa Indonesia Illustrations Volume 1](https://www.ruenovel.com/2023/08/ otome-game-no-heroine-illustrations-volue1.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
