@@ -58,11 +58,11 @@
 
 ## 🏷 Novel Fav Updated
 <!-- BLOG-POST-LIST:START -->
+- [Roshidere Jilid 7 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2023/09/roshidere-jilid-7-prolog-bahasa.html)
 - [Otome Game no Heroine de Saikyou Survival Bahasa Indonesia Volume 6 LN](https://www.ruenovel.com/2023/08/otome-game-no-heroinde-vol6-LN.html)
 - [Otome Game no Heroine de Saikyou Survival Bahasa Indonesia Volume 5 LN](https://www.ruenovel.com/2023/08/otome-game-no-heroinde-vol5-LN.html)
 - [Otome Game no Heroine de Saikyou Survival Bahasa Indonesia Volume 4 LN](https://www.ruenovel.com/2023/08/otome-game-no-heroind-vol4-LN.html)
 - [Otome Game no Heroine de Saikyou Survival Bahasa Indonesia Volume 3 LN](https://www.ruenovel.com/2023/08/otome-game-no-heroinde-vol3-LN.html)
-- [Otome Game no Heroine de Saikyou Survival Bahasa Indonesia Volume 2 LN](https://www.ruenovel.com/2023/08/otome-game-noheroinde-vol2-LN.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
