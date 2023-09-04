@@ -58,11 +58,11 @@
 
 ## 🏷 Novel Fav Updated
 <!-- BLOG-POST-LIST:START -->
+- [Otonari no Tenshi-sama Jilid 7 Bab 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/09/otonari-no-tenshi-sama-jilid-7-bab-6.html)
 - [Dating Story Volume 4 Chapter 3.5](https://zerokaito.blogspot.com/2023/09/dating-story-volume-4-chapter-35.html)
 - [Dating Story Volume 4 Chapter 3](https://zerokaito.blogspot.com/2023/09/dating-story-volume-4-chapter-3.html)
 - [Roshidere Jilid 7 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2023/09/roshidere-jilid-7-prolog-bahasa.html)
 - [Otome Game no Heroine de Saikyou Survival Bahasa Indonesia Volume 6 LN](https://www.ruenovel.com/2023/08/otome-game-no-heroinde-vol6-LN.html)
-- [Otome Game no Heroine de Saikyou Survival Bahasa Indonesia Volume 5 LN](https://www.ruenovel.com/2023/08/otome-game-no-heroinde-vol5-LN.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
