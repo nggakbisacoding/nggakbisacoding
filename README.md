@@ -58,11 +58,11 @@
 
 ## 🏷 Novel Fav Updated
 <!-- BLOG-POST-LIST:START -->
+- [Inkya no Boku ni Batsu Game ni Kokuhaku Shitekita Hazu no Gyaru ga, Doumitemo Boku ni Betahore Desu Bahasa Indonesia Illustratuons Volume 4](https://www.ruenovel.com/2023/09/Inkya-boku-illustrations-vol4.html)
+- [Inkya no Boku ni Batsu Game ni Kokuhaku Shitekita Hazu no Gyaru ga, Doumitemo Boku ni Betahore Desu Bahasa Indonesia Illustratuons Volume 3](https://www.ruenovel.com/2023/09/Inkya-boku-llustrations-vol3.html)
+- [Inkya no Boku ni Batsu Game ni Kokuhaku Shitekita Hazu no Gyaru ga, Doumitemo Boku ni Betahore Desu Bahasa Indonesia Illustratuons Volume 2](https://www.ruenovel.com/2023/09/Inkya-boku-illustrations-vol2.html)
+- [Inkya no Boku ni Batsu Game ni Kokuhaku Shitekita Hazu no Gyaru ga, Doumitemo Boku ni Betahore Desu Bahasa Indonesia Illustratuons Volume 1](https://www.ruenovel.com/2023/09/Inkya-boku-llustrations-vol1.html)
 - [Inkya no Boku ni Batsu Game ni Kokuhaku Shitekita Hazu no Gyaru ga, Doumitemo Boku ni Betahore Desu Bahasa Indonesia](https://www.ruenovel.com/2023/09/inkya-no-boku-ni-batsu-game-ni-kokuhaku.html)
-- [Otonari no Tenshi-sama Jilid 7 Bab 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/09/otonari-no-tenshi-sama-jilid-7-bab-6.html)
-- [Dating Story Volume 4 Chapter 3.5](https://zerokaito.blogspot.com/2023/09/dating-story-volume-4-chapter-35.html)
-- [Dating Story Volume 4 Chapter 3](https://zerokaito.blogspot.com/2023/09/dating-story-volume-4-chapter-3.html)
-- [Roshidere Jilid 7 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2023/09/roshidere-jilid-7-prolog-bahasa.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
