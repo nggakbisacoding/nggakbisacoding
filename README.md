@@ -58,11 +58,11 @@
 
 ## 🏷 Novel Fav Updated
 <!-- BLOG-POST-LIST:START -->
+- [Inkya no Boku ni Batsu Game ni Kokuhaku Shitekita Hazu no Gyaru ga, Doumitemo Boku ni Betahore Desu Bahasa Indonesia Volume 3 LN](https://www.ruenovel.com/2023/09/Inkya-no-boku-ol3-LN.html)
+- [Inkya no Boku ni Batsu Game ni Kokuhaku Shitekita Hazu no Gyaru ga, Doumitemo Boku ni Betahore Desu Bahasa Indonesia Volume 2 LN](https://www.ruenovel.com/2023/09/Inkya-no-boku-ol2-LN.html)
+- [Inkya no Boku ni Batsu Game ni Kokuhaku Shitekita Hazu no Gyaru ga, Doumitemo Boku ni Betahore Desu Bahasa Indonesia Volume 1 LN](https://www.ruenovel.com/2023/09/Inkya-no-boku-vol1-LN.html)
+- [Inkya no Boku ni Batsu Game ni Kokuhaku Shitekita Hazu no Gyaru ga, Doumitemo Boku ni Betahore Desu Bahasa Indonesia Download](https://www.ruenovel.com/2023/09/nkya-no-boku-ni-batsu-game-ni-kokuhaku-download.html)
 - [Inkya no Boku ni Batsu Game ni Kokuhaku Shitekita Hazu no Gyaru ga, Doumitemo Boku ni Betahore Desu Bahasa Indonesia Illustratuons Volume 4](https://www.ruenovel.com/2023/09/Inkya-boku-illustrations-vol4.html)
-- [Inkya no Boku ni Batsu Game ni Kokuhaku Shitekita Hazu no Gyaru ga, Doumitemo Boku ni Betahore Desu Bahasa Indonesia Illustratuons Volume 3](https://www.ruenovel.com/2023/09/Inkya-boku-llustrations-vol3.html)
-- [Inkya no Boku ni Batsu Game ni Kokuhaku Shitekita Hazu no Gyaru ga, Doumitemo Boku ni Betahore Desu Bahasa Indonesia Illustratuons Volume 2](https://www.ruenovel.com/2023/09/Inkya-boku-illustrations-vol2.html)
-- [Inkya no Boku ni Batsu Game ni Kokuhaku Shitekita Hazu no Gyaru ga, Doumitemo Boku ni Betahore Desu Bahasa Indonesia Illustratuons Volume 1](https://www.ruenovel.com/2023/09/Inkya-boku-llustrations-vol1.html)
-- [Inkya no Boku ni Batsu Game ni Kokuhaku Shitekita Hazu no Gyaru ga, Doumitemo Boku ni Betahore Desu Bahasa Indonesia](https://www.ruenovel.com/2023/09/inkya-no-boku-ni-batsu-game-ni-kokuhaku.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
