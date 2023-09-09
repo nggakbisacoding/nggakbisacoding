@@ -58,11 +58,11 @@
 
 ## 🏷 Novel Fav Updated
 <!-- BLOG-POST-LIST:START -->
+- [Dating Story Volume 4 Chapter 4.5](https://zerokaito.blogspot.com/2023/09/dating-story-volume-4-chapter-45.html)
+- [Dating Story Volume 4 Chapter 4](https://zerokaito.blogspot.com/2023/09/dating-story-volume-4-chapter-4.html)
 - [Otonari no Tenshi-sama Jilid 7 Bab 9 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/09/otonari-no-tenshi-sama-jilid-7-bab-9.html)
 - [Otonari no Tenshi-sama Jilid 7 Bab 8 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/09/otonari-no-tenshi-sama-jilid-7-bab-8.html)
 - [Otonari no Tenshi-sama Jilid 7 Bab 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/09/otonari-no-tenshi-sama-jilid-7-bab-7.html)
-- [Inkya no Boku ni Batsu Game ni Kokuhaku Shitekita Hazu no Gyaru ga, Doumitemo Boku ni Betahore Desu Bahasa Indonesia Volume 3 LN](https://www.ruenovel.com/2023/09/Inkya-no-boku-ol3-LN.html)
-- [Inkya no Boku ni Batsu Game ni Kokuhaku Shitekita Hazu no Gyaru ga, Doumitemo Boku ni Betahore Desu Bahasa Indonesia Volume 2 LN](https://www.ruenovel.com/2023/09/Inkya-no-boku-ol2-LN.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
