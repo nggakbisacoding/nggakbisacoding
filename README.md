@@ -58,11 +58,11 @@
 
 ## 🏷 Novel Fav Updated
 <!-- BLOG-POST-LIST:START -->
+- [Otonari no Tenshi-sama Jilid 7 Bab 10 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/09/otonari-no-tenshi-sama-jilid-7-bab-10.html)
 - [Roshidere Jilid 7 Bab 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/09/roshidere-jilid-7-bab-1-bahasa-indonesia.html)
 - [Dating Story Volume 4 Chapter 4.5](https://zerokaito.blogspot.com/2023/09/dating-story-volume-4-chapter-45.html)
 - [Dating Story Volume 4 Chapter 4](https://zerokaito.blogspot.com/2023/09/dating-story-volume-4-chapter-4.html)
 - [Otonari no Tenshi-sama Jilid 7 Bab 9 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/09/otonari-no-tenshi-sama-jilid-7-bab-9.html)
-- [Otonari no Tenshi-sama Jilid 7 Bab 8 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/09/otonari-no-tenshi-sama-jilid-7-bab-8.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
