@@ -58,11 +58,11 @@
 
 ## 🏷 Novel Fav Updated
 <!-- BLOG-POST-LIST:START -->
+- [Otonari no Tenshi-sama Jilid 7 Bab 14 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/09/otonari-no-tenshi-sama-jilid-7-bab-14.html)
 - [Welcome to Japan, Ms. Elf! Bahasa Indonesia Volume 8 LN](https://www.ruenovel.com/2023/09/welcome-to-japan-ms-elf-8-LN.html)
 - [Welcome to Japan, Ms. Elf! Bahasa Indonesia Volume 7 LN](https://www.ruenovel.com/2023/09/welcome-to-japa-7-LN.html)
 - [Welcome to Japan, Ms. Elf! Bahasa Indonesia Volume 6 LN](https://www.ruenovel.com/2023/09/welcome-tojapan-ms-elf-6-LN.html)
 - [Welcome to Japan, Ms. Elf! Bahasa Indonesia Illustrations Volume 8](https://www.ruenovel.com/2023/09/welcome-to-japan-illust-vol8.html)
-- [Welcome to Japan, Ms. Elf! Bahasa Indonesia Illustrations Volume 7](https://www.ruenovel.com/2023/09/welcome-to-japan-illust-vol7.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
