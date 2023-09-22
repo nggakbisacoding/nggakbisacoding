@@ -58,11 +58,11 @@
 
 ## 🏷 Novel Fav Updated
 <!-- BLOG-POST-LIST:START -->
+- [Keiken-zumi Jilid 7 Ilustrasi](https://zerokaito.blogspot.com/2023/09/keiken-zumi-jilid-7-ilustrasi.html)
 - [Otonari no Tenshi-sama Jilid 7 SS 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/09/otonari-no-tenshi-sama-jilid-7-ss-2.html)
 - [Otonari no Tenshi-sama Jilid 7 SS 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/09/otonari-no-tenshi-sama-jilid-7-ss-1.html)
 - [Otonari no Tenshi-sama Jilid 7 Bab 14 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/09/otonari-no-tenshi-sama-jilid-7-bab-14.html)
 - [Welcome to Japan, Ms. Elf! Bahasa Indonesia Volume 8 LN](https://www.ruenovel.com/2023/09/welcome-to-japan-ms-elf-8-LN.html)
-- [Welcome to Japan, Ms. Elf! Bahasa Indonesia Volume 7 LN](https://www.ruenovel.com/2023/09/welcome-to-japa-7-LN.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
