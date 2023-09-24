@@ -58,11 +58,11 @@
 
 ## 🏷 Novel Fav Updated
 <!-- BLOG-POST-LIST:START -->
+- [Gimai Seikatsu Jilid 9 Bab 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/09/gimai-seikatsu-jilid-9-bab-3-bahasa.html)
+- [Otonari no Tenshi-sama Jilid 7 SS 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/09/otonari-no-tenshi-sama-jilid-7-ss-4.html)
+- [Otonari no Tenshi-sama Jilid 7 SS 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/09/otonari-no-tenshi-sama-jilid-7-ss-3.html)
 - [Roshidere Jilid 7 Bab 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/09/roshidere-jilid-7-bab-2-bahasa-indonesia.html)
 - [Keiken-zumi Jilid 7 Ilustrasi](https://zerokaito.blogspot.com/2023/09/keiken-zumi-jilid-7-ilustrasi.html)
-- [Otonari no Tenshi-sama Jilid 7 SS 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/09/otonari-no-tenshi-sama-jilid-7-ss-2.html)
-- [Otonari no Tenshi-sama Jilid 7 SS 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/09/otonari-no-tenshi-sama-jilid-7-ss-1.html)
-- [Otonari no Tenshi-sama Jilid 7 Bab 14 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/09/otonari-no-tenshi-sama-jilid-7-bab-14.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
