@@ -1,12 +1,10 @@
-<!-- ![MasterHead](https://ih1.redbubble.net/image.2040176497.4830/st,small,507x507-pad,600x600,f8f8f8.jpg) -->
 <div align="center">
 <img src="https://ih1.redbubble.net/image.2040176497.4830/st,small,507x507-pad,600x600,f8f8f8.jpg" align="center" height="600" width="600"/>
 </div> 
 
 <h1 align="center">I am Fajar W. N. You can call me Fandead</h1>
-<h3 align="center"> a freelance back-end developer and currently studying software engineering in semester 3 at Gajah Mada University.</h3>
-<img align="right" alt="Coding" width="400" src="https://i.pinimg.com/564x/27/2b/e1/272be1e6214b8fd3d9b93203f1fbf851.jpg">
-
+<h2 align="center"> just an ordinary NPC </h2>
+<img align="right" alt="Coding" width="400" src="https://i.pinimg.com/564x/27/2b/e1/272be1e6214b8fd3d9b93203f1fbf851.jpg" />
 
 - 👨‍💻 I’m currently Study at **[Vocational College](https://sv.ugm.ac.id/)**
   
@@ -45,18 +43,32 @@
 
 ## 🎖️ My Skill
 
-
-<h3 align="center">Languages and Tools</h3>
+<details>
+<summary>Languages</summary>
 <div align="center">   
-<a href="https://www.python.org/" target="_blank"><img style="margin: 10px" src="https://profilinator.rishav.dev/skills-assets/python-original.svg" alt="Python" height="50" /></a>  
-<a href="https://github.com/" target="_blank"><img style="margin: 10px" src="https://profilinator.rishav.dev/skills-assets/git-scm-icon.svg" alt="Git" height="50" /></a>  
+<a href="https://www.python.org/" target="_blank"><img style="margin: 10px" src="https://profilinator.rishav.dev/skills-assets/python-original.svg" alt="Python" height="50" /></a>
+<a href="https://www.gnu.org/software/bash/" target="_blank"><img style="margin: 10px" src="https://profilinator.rishav.dev/skills-assets/gnu_bash-icon.svg" alt="Bash" height="50" /></a>
 </div>
-
+</details>
+<details>
+<summary>Tools</summary>
+<div align="center">
+<a href="https://github.com/" target="_blank"><img style="margin: 10px" src="https://profilinator.rishav.dev/skills-assets/git-scm-icon.svg" alt="Git" height="50" /></a>
+<a href="https://docs.microsoft.com/en-us/powershell/" target="_blank"><img style="margin: 10px" src="https://profilinator.rishav.dev/skills-assets/powershell.png" alt="PowerShell" height="50" /></a>
+</div>
+</details>
+<details>
+<summary>OS</summary>
+<div align="center">
+<a href="https://www.linux.org/" target="_blank"><img style="margin: 10px" src="https://profilinator.rishav.dev/skills-assets/linux-original.svg" alt="Linux" height="50" /></a>
+<a href="https://www.microsoft.com/en-us/windows-server/" target="_blank"><img src="https://styles.redditmedia.com/t5_2tmlc/styles/communityIcon_bqyeyvjaej1a1.png" alt="Windows Server" height="50" /></a>
+</div>
+</details>
 
 ## 📈 Github Stats  
-<div align="center"><img src="https://github-readme-stats.vercel.app/api/top-langs/?username=nggakbisacoding&hide_border=true&layout=compact" align="center" /></div>  
+<div align="center"><img src="https://github-readme-stats.vercel.app/api/top-langs/?username=nggakbisacoding&hide_border=true&layout=compact" align="center" /></div>
 
-## 🏷 Novel Fav Updated
+## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
 - [[LN] Anti-NTR Jilid 1 Bab 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/09/ln-anti-ntr-jilid-1-bab-2-bahasa.html)
 - [Otonari no Tenshi-sama Jilid 8 Ilustrasi](https://zerokaito.blogspot.com/2023/09/otonari-no-tenshi-sama-jilid-8-ilustrasi.html)
@@ -66,7 +78,16 @@
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
-- Make AI model from keras and train it using NLP method
-- Upgrade PC for developing AI model
-- I'm interested in Artificial Neural Networks (ANN) especially developing Neural Networks
-- there are many things that I want to do in the future and all of them are related to machine learning so I need to deepen my understanding of algebraic objects
+<details>
+<summary>Future</summary>
+- Make AI model from keras and train it using NLP method <br />
+- Upgrade PC for developing AI model <br />
+- I'm interested in Artificial Neural Networks (ANN) especially developing Neural Networks <br />
+- there are many things that I want to do in the future and all of them are related to machine learning so I need to deepen my understanding of algebraic objects <br />
+</details>
+<details>
+<summary>Hobby</summary>
+- Gacha <br />
+- Gacha <br />
+- And Gacha <br />
+</details>
