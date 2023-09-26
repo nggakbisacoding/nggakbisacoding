@@ -58,11 +58,11 @@
 
 ## 🏷 Novel Fav Updated
 <!-- BLOG-POST-LIST:START -->
+- [[LN] Anti-NTR Jilid 1 Bab 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/09/ln-anti-ntr-jilid-1-bab-2-bahasa.html)
 - [Otonari no Tenshi-sama Jilid 8 Ilustrasi](https://zerokaito.blogspot.com/2023/09/otonari-no-tenshi-sama-jilid-8-ilustrasi.html)
 - [[LN] Anti-NTR Jilid 1 Bab 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/09/ln-anti-ntr-jilid-1-bab-1-bahasa.html)
 - [[LN] Anti-NTR Jilid 1 Ilustrasi](https://zerokaito.blogspot.com/2023/09/ln-anti-ntr-jilid-1-ilustrasi.html)
 - [Gimai Seikatsu Jilid 9 Bab 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/09/gimai-seikatsu-jilid-9-bab-3-bahasa.html)
-- [Otonari no Tenshi-sama Jilid 7 SS 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/09/otonari-no-tenshi-sama-jilid-7-ss-4.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
