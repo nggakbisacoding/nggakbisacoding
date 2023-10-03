@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [[LN] Anti-NTR Jilid 1 Bab 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/10/ln-anti-ntr-jilid-1-bab-6-bahasa.html)
 - [[LN] Anti-NTR Jilid 1 Bab 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/10/ln-anti-ntr-jilid-1-bab-5-bahasa.html)
 - [Keiken-zumi Jilid 7 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2023/10/keiken-zumi-jilid-7-prolog-bahasa.html)
 - [Roshidere Jilid 7 Bab 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/09/roshidere-jilid-7-bab-3-bahasa-indonesia.html)
 - [[LN] Anti-NTR Jilid 1 Bab 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/09/ln-anti-ntr-jilid-1-bab-4-bahasa.html)
-- [[LN] Anti-NTR Jilid 1 Bab 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/09/ln-anti-ntr-jilid-1-bab-3-bahasa.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
