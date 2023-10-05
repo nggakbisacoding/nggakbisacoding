@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
-- [Gimai Seikatsu Jilid 9 Bab 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/10/gimai-seikatsu-jilid-9-bab-4-bahasa.html)
-- [[LN] Anti-NTR Jilid 1 Bab 8 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/10/ln-anti-ntr-jilid-1-bab-8-bahasa.html)
-- [[LN] Anti-NTR Jilid 1 Bab 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/10/ln-anti-ntr-jilid-1-bab-7-bahasa.html)
-- [[LN] Anti-NTR Jilid 1 Bab 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/10/ln-anti-ntr-jilid-1-bab-6-bahasa.html)
-- [[LN] Anti-NTR Jilid 1 Bab 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/10/ln-anti-ntr-jilid-1-bab-5-bahasa.html)
+- [Seiken Gakuin no Maken Tsukai Bahasa Indonesia Bahasa Indonesia Volume 8 LN](https://www.ruenovel.com/2023/10/seiken-gakuin-no-maken-tsukasai-LN-vol8-ID.html)
+- [Seiken Gakuin no Maken Tsukai Bahasa Indonesia Bahasa Indonesia Volume 7 LN](https://www.ruenovel.com/2023/10/seiken-gakuin-no-maken-tsukasai-LN-vol7-ID.html)
+- [Seiken Gakuin no Maken Tsukai Bahasa Indonesia Illustrations Volume 8](https://www.ruenovel.com/2023/10/seiken-gakuin-volume8-illustrations.html)
+- [Otonari no Tenshi-sama ni Itsu no Ma ni ka Dame Ningen ni Sareteita Ken Bahasa Indonesia Volume 5.5 LN](https://www.ruenovel.com/2023/10/otonari-tenhi-sama-LN-vol5-5-ID.html)
+- [Clearing an Isekai with the Zero-Believers Goddess – The Weakest Mage among the Classmates Bahasa Indonesia Volume 9 LN](https://www.ruenovel.com/2023/10/clearing-iseai-LN-vol9-ID.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
