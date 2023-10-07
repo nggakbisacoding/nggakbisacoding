@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Roshidere Jilid 7 Bab 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/10/roshidere-jilid-7-bab-4-bahasa-indonesia.html)
+- [Otonari no Tenshi-sama JIlid 8 Bab 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/10/otonari-no-tenshi-sama-jilid-8-bab-1.html)
 - [Seiken Gakuin no Maken Tsukai Bahasa Indonesia Bahasa Indonesia Volume 8 LN](https://www.ruenovel.com/2023/10/seiken-gakuin-no-maken-tsukasai-LN-vol8-ID.html)
 - [Seiken Gakuin no Maken Tsukai Bahasa Indonesia Bahasa Indonesia Volume 7 LN](https://www.ruenovel.com/2023/10/seiken-gakuin-no-maken-tsukasai-LN-vol7-ID.html)
 - [Seiken Gakuin no Maken Tsukai Bahasa Indonesia Illustrations Volume 8](https://www.ruenovel.com/2023/10/seiken-gakuin-volume8-illustrations.html)
-- [Otonari no Tenshi-sama ni Itsu no Ma ni ka Dame Ningen ni Sareteita Ken Bahasa Indonesia Volume 5.5 LN](https://www.ruenovel.com/2023/10/otonari-tenhi-sama-LN-vol5-5-ID.html)
-- [Clearing an Isekai with the Zero-Believers Goddess – The Weakest Mage among the Classmates Bahasa Indonesia Volume 9 LN](https://www.ruenovel.com/2023/10/clearing-iseai-LN-vol9-ID.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
