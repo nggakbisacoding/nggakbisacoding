@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [[LN] Anti-NTR Jilid 2 Ilustrasi](https://zerokaito.blogspot.com/2023/10/ln-anti-ntr-jilid-2-ilustrasi.html)
 - [Roshidere Jilid 7 Bab 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/10/roshidere-jilid-7-bab-4-bahasa-indonesia.html)
 - [Otonari no Tenshi-sama JIlid 8 Bab 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/10/otonari-no-tenshi-sama-jilid-8-bab-1.html)
 - [Seiken Gakuin no Maken Tsukai Bahasa Indonesia Bahasa Indonesia Volume 8 LN](https://www.ruenovel.com/2023/10/seiken-gakuin-no-maken-tsukasai-LN-vol8-ID.html)
 - [Seiken Gakuin no Maken Tsukai Bahasa Indonesia Bahasa Indonesia Volume 7 LN](https://www.ruenovel.com/2023/10/seiken-gakuin-no-maken-tsukasai-LN-vol7-ID.html)
-- [Seiken Gakuin no Maken Tsukai Bahasa Indonesia Illustrations Volume 8](https://www.ruenovel.com/2023/10/seiken-gakuin-volume8-illustrations.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
