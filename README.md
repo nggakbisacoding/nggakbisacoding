@@ -70,7 +70,7 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
-- [[Eng] Never Cuckold Them Volume 2 Illustration](https://zerokaito.blogspot.com/2023/10/eng-never-cuckold-them-volume-2.html)
+- [[Eng] Never C*ckold Them Volume 2 Illustration](https://zerokaito.blogspot.com/2023/10/eng-never-cuckold-them-volume-2.html)
 - [[LN] Anti-NTR Jilid 2 Ilustrasi](https://zerokaito.blogspot.com/2023/10/ln-anti-ntr-jilid-2-ilustrasi.html)
 - [Roshidere Jilid 7 Bab 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/10/roshidere-jilid-7-bab-4-bahasa-indonesia.html)
 - [Otonari no Tenshi-sama JIlid 8 Bab 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/10/otonari-no-tenshi-sama-jilid-8-bab-1.html)
