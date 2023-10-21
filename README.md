@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Gimai Seikatsu Jilid 9 Bab 8 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/10/gimai-seikatsu-jilid-9-bab-8-bahasa.html)
 - [Gimai Seikatsu Jilid 9 Bab 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/10/gimai-seikatsu-jilid-9-bab-7-bahasa.html)
 - [[LN] Anti-NTR Jilid 2 Bab 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/10/ln-anti-ntr-jilid-2-bab-2-bahasa.html)
 - [Roshidere Jilid 7 Bab 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/10/roshidere-jilid-7-bab-6-bahasa-indonesia.html)
 - [Gimai Seikatsu Jilid 9 Bab 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/10/gimai-seikatsu-jilid-9-bab-6-bahasa.html)
-- [Roshidere Jilid 7 Bab 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/10/roshidere-jilid-7-bab-5-bahasa-indonesia.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
