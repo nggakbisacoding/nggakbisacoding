@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
-- [Roshidere Jilid 7 Bab 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/10/roshidere-jilid-7-bab-7-bahasa-indonesia.html)
-- [[LN] Anti-NTR Jilid 2 Bab 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/10/ln-anti-ntr-jilid-2-bab-3-bahasa.html)
-- [Gimai Seikatsu Jilid 9 Kisah Pendek](https://zerokaito.blogspot.com/2023/10/gimai-seikatsu-jilid-9-kisah-pendek.html)
-- [Gimai Seikatsu Jilid 9 Bab 12 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/10/gimai-seikatsu-jilid-9-bab-12-bahasa.html)
-- [Gimai Seikatsu Jilid 9 Bab 11 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/10/gimai-seikatsu-jilid-9-bab-11-bahasa.html)
+- [I Know That After School, The Saint is More Than Just Noble Bahasa Indonesia Illustrations Volume 4](https://www.ruenovel.com/2023/10/-know-that-after-school-saint-is-more-illustrations-volume4.html)
+- [I Know That After School, The Saint is More Than Just Noble Bahasa Indonesia Illustrations Volume 3](https://www.ruenovel.com/2023/10/i-know-that-after-school-saint-is-more-illustrations-volume3.html)
+- [I Know That After School, The Saint is More Than Just Noble Bahasa Indonesia Illustrations Volume 2](https://www.ruenovel.com/2023/10/ i-know-that-fter-school-saint-is-more-illust-vol2.html)
+- [I Know That After School, The Saint is More Than Just Noble Bahasa Indonesia Illustrations Volume 1](https://www.ruenovel.com/2023/10/i-know-that-after-school-saint-is-more-illust-vol1.html)
+- [I Know That After School, The Saint is More Than Just Noble Bahasa Indonesia](https://www.ruenovel.com/2023/10/i-know-that-after-school-saint-is-more-indonesia.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
