@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Inkya no Boku ni Batsu Game ni Kokuhaku Shitekita Hazu no Gyaru ga, Doumitemo Boku ni Betahore Desu Bahasa Indonesia Volume 4 LN](https://www.ruenovel.com/2023/10/Inkya-no-boku-vol4-LN.html)
+- [Seiken Gakuin no Maken Tsukai Bahasa Indonesia Illustrations Volume 9](https://www.ruenovel.com/2023/10/seiken-gakuin-volume-illustrations9.html)
 - [I Know That After School, The Saint is More Than Just Noble Bahasa Indonesia Illustrations Volume 4](https://www.ruenovel.com/2023/10/-know-that-after-school-saint-is-more-illustrations-volume4.html)
 - [I Know That After School, The Saint is More Than Just Noble Bahasa Indonesia Illustrations Volume 3](https://www.ruenovel.com/2023/10/i-know-that-after-school-saint-is-more-illustrations-volume3.html)
 - [I Know That After School, The Saint is More Than Just Noble Bahasa Indonesia Illustrations Volume 2](https://www.ruenovel.com/2023/10/ i-know-that-fter-school-saint-is-more-illust-vol2.html)
-- [I Know That After School, The Saint is More Than Just Noble Bahasa Indonesia Illustrations Volume 1](https://www.ruenovel.com/2023/10/i-know-that-after-school-saint-is-more-illust-vol1.html)
-- [I Know That After School, The Saint is More Than Just Noble Bahasa Indonesia](https://www.ruenovel.com/2023/10/i-know-that-after-school-saint-is-more-indonesia.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
