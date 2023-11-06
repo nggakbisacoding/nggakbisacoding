@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [I Know That After School, The Saint is More Than Just Noble Bahasa Indonesia Download](https://www.ruenovel.com/2023/11/i-know-that-after-school-saint-is-more-download-.html)
 - [Roshidere Jilid 7 Bab 8 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/11/roshidere-jilid-7-bab-8-bahasa-indonesia.html)
 - [Otonari no Tenshi-sama Jilid 8 Bab 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/11/otonari-no-tenshi-sama-jilid-8-bab-3.html)
 - [[LN] Anti-NTR Jilid 2 Bab 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/10/ln-anti-ntr-jilid-2-bab-4-bahasa.html)
 - [Otonari no Tenshi-sama Jilid 8 Bab 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/10/otonari-no-tenshi-sama-jilid-8-bab-2.html)
-- [Seiken Gakuin no Maken Tsukai Bahasa Indonesia Bahasa Indonesia Volume 9 LN](https://www.ruenovel.com/2023/10/seiken-gakuin-no-maken-tsukasai-LN-vol9-ID.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
