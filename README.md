@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
-- [I Know That After School, The Saint is More Than Just Noble Bahasa Indonesia Volume 4 LN](https://www.ruenovel.com/2023/11/i-know-after-school-LN-Vol4.html)
-- [I Know That After School, The Saint is More Than Just Noble Bahasa Indonesia Volume 3 LN](https://www.ruenovel.com/2023/11/i-know-after-school-LN-Vol3.html)
-- [I Know That After School, The Saint is More Than Just Noble Bahasa Indonesia Volume 2 LN](https://www.ruenovel.com/2023/11/i-know-after-school-LN-Vol2.html)
-- [[LN] Anti-NTR Jilid 2 Bab 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/11/ln-anti-ntr-jilid-2-bab-5-bahasa.html)
-- [I Know That After School, The Saint is More Than Just Noble Bahasa Indonesia Volume 1 LN](https://www.ruenovel.com/2023/11/i-know-after-school-LN-Vol1.html)
+- [Maou Gakuen no Hangyakusha Bahasa Indonesia Manga](https://www.ruenovel.com/2023/11/manga-maou-gakuen-no-hangyakusha.html)
+- [Maou to Ore no Hangyakuki Bahasa Indonesia Manga](https://www.ruenovel.com/2023/11/manga-maou-to-ore-no-hangyakuki.html)
+- [Isekai de Te ni Ireta Seisan Skill wa Saikyou datta You desu Bahasa Indonesia Manga](https://www.ruenovel.com/2023/11/manga-isekai-de-te-ni-ireta-seisan-skill-wa.html)
+- [Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e Bahasa Indonesia Manga](https://www.ruenovel.com/2023/11/manga-youkoso-jitsuryoku-shijou-shugi-no.html)
+- [Shikkoku Tsukai no Saikyou Yuusha Bahasa Indonesia Manga](https://www.ruenovel.com/2023/11/manga-shikoku-tsukai-no-saikyou-yuusha.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
