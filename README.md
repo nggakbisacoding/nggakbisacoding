@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Kimizero Jilid 7 Bab 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/11/kimizero-jilid-7-bab-2-bahasa-indonesia.html)
 - [Maou Gakuen no Hangyakusha Bahasa Indonesia Manga](https://www.ruenovel.com/2023/11/manga-maou-gakuen-no-hangyakusha.html)
 - [Maou to Ore no Hangyakuki Bahasa Indonesia Manga](https://www.ruenovel.com/2023/11/manga-maou-to-ore-no-hangyakuki.html)
 - [Isekai de Te ni Ireta Seisan Skill wa Saikyou datta You desu Bahasa Indonesia Manga](https://www.ruenovel.com/2023/11/manga-isekai-de-te-ni-ireta-seisan-skill-wa.html)
 - [Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e Bahasa Indonesia Manga](https://www.ruenovel.com/2023/11/manga-youkoso-jitsuryoku-shijou-shugi-no.html)
-- [Shikkoku Tsukai no Saikyou Yuusha Bahasa Indonesia Manga](https://www.ruenovel.com/2023/11/manga-shikoku-tsukai-no-saikyou-yuusha.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
