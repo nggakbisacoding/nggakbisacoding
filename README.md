@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Otonari no Tenshi-sama Jilid 8 Bab 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/11/otonari-no-tenshi-sama-jilid-8-bab-4.html)
 - [Roshidere Jilid 7 Bab 9 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/11/roshidere-jilid-7-bab-9-bahasa-indonesia.html)
 - [Kimizero Jilid 7 Bab 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/11/kimizero-jilid-7-bab-2-bahasa-indonesia.html)
 - [Maou Gakuen no Hangyakusha Bahasa Indonesia Manga](https://www.ruenovel.com/2023/11/manga-maou-gakuen-no-hangyakusha.html)
 - [Maou to Ore no Hangyakuki Bahasa Indonesia Manga](https://www.ruenovel.com/2023/11/manga-maou-to-ore-no-hangyakuki.html)
-- [Isekai de Te ni Ireta Seisan Skill wa Saikyou datta You desu Bahasa Indonesia Manga](https://www.ruenovel.com/2023/11/manga-isekai-de-te-ni-ireta-seisan-skill-wa.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
