@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Otonari no Tenshi-sama Jilid 8 Bab 8 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/11/otonari-no-tenshi-sama-jilid-8-bab-8.html)
 - [[LN] Anti-NTR Jilid 2 Bab SS Bahasa Indonesia](https://zerokaito.blogspot.com/2023/11/ln-anti-ntr-jilid-2-bab-ss-bahasa.html)
 - [[LN] Anti-NTR Jilid 2 Bab 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/11/ln-anti-ntr-jilid-2-bab-7-bahasa.html)
 - [Otonari no Tenshi-sama Jilid 8 Bab 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/11/otonari-no-tenshi-sama-jilid-8-bab-7.html)
 - [Roshidere Jilid 7 Bab 10 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/11/roshidere-jilid-7-bab-10-bahasa.html)
-- [Kimizero Jilid 7 Bab 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/11/kimizero-jilid-7-bab-3-bahasa-indonesia.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
