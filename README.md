@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
-- [Otonari no Tenshi-sama Jilid 8 SS 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/11/otonari-no-tenshi-sama-jilid-8-ss-4.html)
-- [Otonari no Tenshi-sama Jilid 8 SS 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/11/otonari-no-tenshi-sama-jilid-8-ss-3.html)
-- [Otonari no Tenshi-sama JIlid 8 SS 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/11/otonari-no-tenshi-sama-jilid-8-ss-2.html)
-- [Otonari no Tenshi-sama Jilid 8 SS 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/11/otonari-no-tenshi-sama-jilid-8-ss-1.html)
-- [Otonari no Tenshi-sama Jilid 8 Bab 10 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/11/otonari-no-tenshi-sama-jilid-8-bab-10.html)
+- [Roshidere Jilid 7 Kata Penutup](https://zerokaito.blogspot.com/2023/11/roshidere-jilid-7-kata-penutup.html)
+- [Roshidere Jilid 7 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2023/11/roshidere-jilid-7-epilog-bahasa.html)
+- [Kimizero Jilid 7 Kata Penutup](https://zerokaito.blogspot.com/2023/11/kimizero-jilid-7-kata-penutup.html)
+- [Kimizero Jilid 7 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2023/11/kimizero-jilid-7-epilog-bahasa-indonesia.html)
+- [Kimizero JIlid 7 Bab 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/11/kimizero-jilid-7-bab-5-bahasa-indonesia.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
