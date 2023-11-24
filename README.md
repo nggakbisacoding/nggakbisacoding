@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
-- [Otonari no Tenshi-sama Jilid 8 Bab 9 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/11/otonari-no-tenshi-sama-jilid-8-bab-9.html)
-- [Kimizero Jilid 7 Bab 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/11/kimizero-jilid-7-bab-4-bahasa-indonesia.html)
-- [Otonari no Tenshi-sama Jilid 8 Bab 8 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/11/otonari-no-tenshi-sama-jilid-8-bab-8.html)
-- [[LN] Anti-NTR Jilid 2 Bab SS Bahasa Indonesia](https://zerokaito.blogspot.com/2023/11/ln-anti-ntr-jilid-2-bab-ss-bahasa.html)
-- [[LN] Anti-NTR Jilid 2 Bab 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/11/ln-anti-ntr-jilid-2-bab-7-bahasa.html)
+- [Otonari no Tenshi-sama Jilid 8 SS 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/11/otonari-no-tenshi-sama-jilid-8-ss-4.html)
+- [Otonari no Tenshi-sama Jilid 8 SS 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/11/otonari-no-tenshi-sama-jilid-8-ss-3.html)
+- [Otonari no Tenshi-sama JIlid 8 SS 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/11/otonari-no-tenshi-sama-jilid-8-ss-2.html)
+- [Otonari no Tenshi-sama Jilid 8 SS 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/11/otonari-no-tenshi-sama-jilid-8-ss-1.html)
+- [Otonari no Tenshi-sama Jilid 8 Bab 10 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/11/otonari-no-tenshi-sama-jilid-8-bab-10.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
