@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [[LN] Otonari no Top Idol-sama Jilid 1 Bab 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/11/ln-otonari-no-top-idol-sama-jilid-1-bab.html)
 - [[LN] Reset Seishun Jilid 1 Bab 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/11/ln-reset-seishun-jilid-1-bab-1-bahasa.html)
 - [[LN] Reset Seishun Jilid 1 Ilustrasi](https://zerokaito.blogspot.com/2023/11/ln-reset-seishun-jilid-1-ilustrasi.html)
 - [[LN] Otonari no Top Idol-sama Jilid 1 Ilustrasi](https://zerokaito.blogspot.com/2023/11/ln-otonari-no-top-idol-sama-jilid-1.html)
 - [Roshidere Jilid 7 Kata Penutup](https://zerokaito.blogspot.com/2023/11/roshidere-jilid-7-kata-penutup.html)
-- [Roshidere Jilid 7 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2023/11/roshidere-jilid-7-epilog-bahasa.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
