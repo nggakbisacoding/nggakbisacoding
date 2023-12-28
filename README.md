@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [[LN] Reset Seishun Jilid 1 Bab 18 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/12/ln-reset-seishun-jilid-1-bab-18-bahasa.html)
 - [[LN] Otonari no Top Idol-sama Jilid 1 Bab 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/12/ln-otonari-no-top-idol-sama-jilid-1-bab_26.html)
 - [[LN] Reset Seishun Jilid 1 Bab 17 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/12/ln-reset-seishun-jilid-1-bab-17-bahasa.html)
 - [[LN] Reset Seishun Jilid 1 Bab 16 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/12/ln-reset-seishun-jilid-1-bab-16-bahasa.html)
 - [[LN] Reset Seishun Jilid 1 Bab 15 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/12/ln-reset-seishun-jilid-1-bab-15-bahasa.html)
-- [[LN] Reset Seishun Jilid 1 Bab 14 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/12/ln-reset-seishun-jilid-1-bab-14-bahasa.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
