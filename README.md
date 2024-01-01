@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Jitsu wa Ore, Saikyou deshita? Bahasa Indonesia Manga](https://www.ruenovel.com/2024/01/manga-jitsu-wa-ore-saikyou-deshita.html)
 - [Otonari no Tenshi-sama Jilid 8.5 Ilustrasi](https://zerokaito.blogspot.com/2023/12/otonari-no-tenshi-sama-jilid-85.html)
 - [[LN] Reset Seishun Jilid 1 Bab SS Bahasa Indonesia](https://zerokaito.blogspot.com/2023/12/ln-reset-seishun-jilid-1-bab-ss-bahasa.html)
 - [[LN] Reset Seishun Jilid 1 Kata Penutup](https://zerokaito.blogspot.com/2023/12/ln-reset-seishun-jilid-1-kata-penutup.html)
 - [[LN] Reset Seishun Jilid 1 Bab 21 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/12/ln-reset-seishun-jilid-1-bab-21-bahasa.html)
-- [[LN] Reset Seishun Jilid 1 Bab 20 Bahasa Indonesia](https://zerokaito.blogspot.com/2023/12/ln-reset-seishun-jilid-1-bab-20-bahasa.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
