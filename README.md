@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Ani to Imouto no Shitai Shitai Shitai Koto Bahasa Indonesia Manga](https://www.ruenovel.com/2024/01/manga-ani-to-imouto-no-shitai-shitai.html)
+- [Re:Zero kara Hajimeru Isekai Seikatsu – Daisanshou – Truth of Zero Bahasa Indonesia Manga](https://www.ruenovel.com/2024/01/manga-rezero-kara-hajimeru-isekai.html)
 - [A Demon Lord’s Tale: Dungeons, Monster Girls, and Heartwarming Bliss Bahasa Indonesia Manga](https://www.ruenovel.com/2024/01/mangaa-demon-lords-tale-dungeons-monste.html)
 - [Maou Toubatsu Shita Ato, Medachitakunai node Guild Master ni Natta Bahasa Indonesia Manga](https://www.ruenovel.com/2024/01/manga-maou-toubatsu-shita-ato.html)
 - [Jitsu wa Ore, Saikyou deshita? Bahasa Indonesia Manga](https://www.ruenovel.com/2024/01/manga-jitsu-wa-ore-saikyou-deshita.html)
-- [Otonari no Tenshi-sama Jilid 8.5 Ilustrasi](https://zerokaito.blogspot.com/2023/12/otonari-no-tenshi-sama-jilid-85.html)
-- [[LN] Reset Seishun Jilid 1 Bab SS Bahasa Indonesia](https://zerokaito.blogspot.com/2023/12/ln-reset-seishun-jilid-1-bab-ss-bahasa.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
