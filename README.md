@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
-- [[LN] Otonari no Top Idol-sama Jilid 1 Bab SS Bahasa Indonesia](https://zerokaito.blogspot.com/2024/01/ln-otonari-no-top-idol-sama-jilid-1-bab_31.html)
-- [[LN] Otonari no Top Idol-sama Jilid 1 Kata Penutup](https://zerokaito.blogspot.com/2024/01/ln-otonari-no-top-idol-sama-jilid-1.html)
-- [[LN] Otonari no Top Idol-sama Jilid 1 Bab Interval Bahasa Indonesia](https://zerokaito.blogspot.com/2024/01/ln-otonari-no-top-idol-sama-jilid-1-bab_83.html)
-- [[LN] Otonari no Top Idol-sama Jilid 1 Bab 11 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/01/ln-otonari-no-top-idol-sama-jilid-1-bab_10.html)
-- [[LN] Anti-NTR Jilid 3 Ilustrasi](https://zerokaito.blogspot.com/2024/01/ln-anti-ntr-jilid-3-ilustrasi.html)
+- [My Instant Death Ability is So Overpowered, No One in This Other World Stands a Chance Against Me! Bahasa Indonesia Illustrations Volume 12](https://www.ruenovel.com/2024/01/my-instant-death-ability-is-so-illustrations-volume12.html)
+- [My Instant Death Ability is So Overpowered, No One in This Other World Stands a Chance Against Me! Bahasa Indonesia Illustrations Volume 11](https://www.ruenovel.com/2024/01/my-instant-death-ability-is-so-illustrations-volume11.html)
+- [My Instant Death Ability is So Overpowered, No One in This Other World Stands a Chance Against Me! Bahasa Indonesia Illustrations Volume 10](https://www.ruenovel.com/2024/01/my-instant-death-ability-is-so-illustrations-volume10.html)
+- [My Instant Death Ability is So Overpowered, No One in This Other World Stands a Chance Against Me! Bahasa Indonesia Illustrations Volume 9](https://www.ruenovel.com/2024/01/my-instant-dath-ability-is-so-illustrations-volume9.html)
+- [My Instant Death Ability is So Overpowered, No One in This Other World Stands a Chance Against Me! Bahasa Indonesia Illustrations Volume 8](https://www.ruenovel.com/2024/01/my-instat-death-ability-is-so-illustrations-volume8.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
