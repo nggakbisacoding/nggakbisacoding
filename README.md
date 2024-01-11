@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [My Instant Death Ability is So Overpowered, No One in This Other World Stands a Chance Against Me! Bahasa Indonesia Illustrations Volume 14](https://www.ruenovel.com/2024/01/my-instant-death-ability-is-so-illustrations-volume14.html)
+- [My Instant Death Ability is So Overpowered, No One in This Other World Stands a Chance Against Me! Bahasa Indonesia Illustrations Volume 13](https://www.ruenovel.com/2024/01/my-instantdeath-ability-is-so-illustrations-volume13.html)
 - [My Instant Death Ability is So Overpowered, No One in This Other World Stands a Chance Against Me! Bahasa Indonesia Illustrations Volume 12](https://www.ruenovel.com/2024/01/my-instant-death-ability-is-so-illustrations-volume12.html)
 - [My Instant Death Ability is So Overpowered, No One in This Other World Stands a Chance Against Me! Bahasa Indonesia Illustrations Volume 11](https://www.ruenovel.com/2024/01/my-instant-death-ability-is-so-illustrations-volume11.html)
 - [My Instant Death Ability is So Overpowered, No One in This Other World Stands a Chance Against Me! Bahasa Indonesia Illustrations Volume 10](https://www.ruenovel.com/2024/01/my-instant-death-ability-is-so-illustrations-volume10.html)
-- [My Instant Death Ability is So Overpowered, No One in This Other World Stands a Chance Against Me! Bahasa Indonesia Illustrations Volume 9](https://www.ruenovel.com/2024/01/my-instant-dath-ability-is-so-illustrations-volume9.html)
-- [My Instant Death Ability is So Overpowered, No One in This Other World Stands a Chance Against Me! Bahasa Indonesia Illustrations Volume 8](https://www.ruenovel.com/2024/01/my-instat-death-ability-is-so-illustrations-volume8.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
