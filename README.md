@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
-- [[LN] Anti-NTR Jilid 3 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/01/ln-anti-ntr-jilid-3-prolog-bahasa.html)
-- [My Instant Death Ability is So Overpowered, No One in This Other World Stands a Chance Against Me! Bahasa Indonesia Illustrations Volume 14](https://www.ruenovel.com/2024/01/my-instant-death-ability-is-so-illustrations-volume14.html)
-- [My Instant Death Ability is So Overpowered, No One in This Other World Stands a Chance Against Me! Bahasa Indonesia Illustrations Volume 13](https://www.ruenovel.com/2024/01/my-instantdeath-ability-is-so-illustrations-volume13.html)
-- [My Instant Death Ability is So Overpowered, No One in This Other World Stands a Chance Against Me! Bahasa Indonesia Illustrations Volume 12](https://www.ruenovel.com/2024/01/my-instant-death-ability-is-so-illustrations-volume12.html)
-- [My Instant Death Ability is So Overpowered, No One in This Other World Stands a Chance Against Me! Bahasa Indonesia Illustrations Volume 11](https://www.ruenovel.com/2024/01/my-instant-death-ability-is-so-illustrations-volume11.html)
+- [My Instant Death Ability is So Overpowered, No One in This Other World Stands a Chance Against Me! Bahasa Indonesia Illustrations Volume 14 LN](https://www.ruenovel.com/2024/01/InstantdeathLN-vol14.html)
+- [My Instant Death Ability is So Overpowered, No One in This Other World Stands a Chance Against Me! Bahasa Indonesia Illustrations Volume 13  LN](https://www.ruenovel.com/2024/01/InstantdeathLN-vol13.html)
+- [My Instant Death Ability is So Overpowered, No One in This Other World Stands a Chance Against Me! Bahasa Indonesia Illustrations Volume 12](https://www.ruenovel.com/2024/01/InstantdeathLN-vol12.html)
+- [My Instant Death Ability is So Overpowered, No One in This Other World Stands a Chance Against Me! Bahasa Indonesia Illustrations Volume 11 LN](https://www.ruenovel.com/2024/01/Instant-0deathLN-vol111.html)
+- [My Instant Death Ability is So Overpowered, No One in This Other World Stands a Chance Against Me! Bahasa Indonesia Illustrations Volume 10 LN](https://www.ruenovel.com/2024/01/InstantdeathLN-vol10.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
