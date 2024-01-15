@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Asahina Wakaba to Marumaru na Kareshi! Bahasa Indonesia Manga](https://www.ruenovel.com/2024/01/manga-asahina-wakaba-to-marumaru-na.html)
 - [[LN] Saijou no Osewa Jilid 4 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/01/ln-saijou-no-osewa-jilid-4-prolog.html)
 - [[LN] Saijou no Osewa Jilid 4 Ilustrasi](https://zerokaito.blogspot.com/2024/01/ln-saijou-no-osewa-jilid-4-ilustrasi.html)
 - [My Stepsister is My Ex-Girlfriend Bahasa Indonesia Illustrations Volume 11](https://www.ruenovel.com/2024/01/Mamahaha-illustrations-volume11.html)
 - [My Stepsister is My Ex-Girlfriend Bahasa Indonesia Illustrations Volume 10](https://www.ruenovel.com/2024/01/Mamahaha-illustrations-volume10.html)
-- [My Stepsister is My Ex-Girlfriend Bahasa Indonesia Illustrations Volume 9](https://www.ruenovel.com/2024/01/Mamahaha-illustrations-volume9.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
