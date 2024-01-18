@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Uchi no Ko no Tame naraba, Ore wa Moshikashitara Maou mo Taoseru kamo Shirenai Bahasa Indonesia Manga](https://www.ruenovel.com/2024/01/manga-uchi-no-ko-no-tame-naraba-ore-wa.html)
+- [Shangri-La Frontier Bahasa Indonesia Manga](https://www.ruenovel.com/2024/01/manga-shangri-la-frontier-bahasa.html)
+- [Seitokaichou wa Bed no Ue de Subete wo Hodoku Bahasa Indonesia Manga](https://www.ruenovel.com/2024/01/manga-seitokaichou-wa-bed-no-ue-de.html)
+- [Saenai Heroine no Sodatekata Koisuru Metronome Bahasa Indonesia Manga](https://www.ruenovel.com/2024/01/manga-saenai-heroine-no-sodatekata.html)
 - [JK kara Yarinaosu Silver Plan Bahasa Indonesia Manga](https://www.ruenovel.com/2024/01/Manga-Jk-kara-yarinasou.html)
-- [Houkago, Famires de Volume 1 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/01/houkago-famires-de-volume-1-prolog.html)
-- [Houkago, Famires de Ilustrasi](https://zerokaito.blogspot.com/2024/01/houkago-famires-de-ilustrasi.html)
-- [Isekai Yururi Kikou ~Raising Children While Being an Adventurer~ Bahasa Indonesia Manga](https://www.ruenovel.com/2024/01/manga-isekai-yururi-kikou-raising.html)
-- [Ice Cream Kanojo Bahasa Indonesia Manga](https://www.ruenovel.com/2024/01/manga-ice-cream-kanojo-bahasa-indonesia.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
