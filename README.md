@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [JK kara Yarinaosu Silver Plan Bahasa Indonesia Manga](https://www.ruenovel.com/2024/01/Manga-Jk-kara-yarinasou.html)
 - [Houkago, Famires de Volume 1 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/01/houkago-famires-de-volume-1-prolog.html)
 - [Houkago, Famires de Ilustrasi](https://zerokaito.blogspot.com/2024/01/houkago-famires-de-ilustrasi.html)
 - [Isekai Yururi Kikou ~Raising Children While Being an Adventurer~ Bahasa Indonesia Manga](https://www.ruenovel.com/2024/01/manga-isekai-yururi-kikou-raising.html)
 - [Ice Cream Kanojo Bahasa Indonesia Manga](https://www.ruenovel.com/2024/01/manga-ice-cream-kanojo-bahasa-indonesia.html)
-- [Asahina Wakaba to Marumaru na Kareshi! Bahasa Indonesia Manga](https://www.ruenovel.com/2024/01/manga-asahina-wakaba-to-marumaru-na.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
