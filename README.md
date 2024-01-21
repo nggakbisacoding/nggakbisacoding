@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [[LN] Saijou no Osewa Jilid 4 Bab 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/01/ln-saijou-no-osewa-jilid-4-bab-1-bahasa.html)
 - [[LN] Anti-NTR Jilid 3 Bab 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/01/ln-anti-ntr-jilid-3-bab-1-bahasa.html)
 - [Houkago, Famires de Volume 1 Bab 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/01/houkago-famires-de-volume-1-bab-1.html)
 - [Uchi no Ko no Tame naraba, Ore wa Moshikashitara Maou mo Taoseru kamo Shirenai Bahasa Indonesia Manga](https://www.ruenovel.com/2024/01/manga-uchi-no-ko-no-tame-naraba-ore-wa.html)
 - [Shangri-La Frontier Bahasa Indonesia Manga](https://www.ruenovel.com/2024/01/manga-shangri-la-frontier-bahasa.html)
-- [Seitokaichou wa Bed no Ue de Subete wo Hodoku Bahasa Indonesia Manga](https://www.ruenovel.com/2024/01/manga-seitokaichou-wa-bed-no-ue-de.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
