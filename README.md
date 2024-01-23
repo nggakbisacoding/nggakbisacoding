@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Zenbu, Aiiro datta Bab 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/01/zenbu-aiiro-datta-bab-2-bahasa-indonesia.html)
 - [Zenbu, Aiiro datta Bab 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/01/zenbu-aiiro-datta-bab-1-bahasa-indonesia.html)
 - [Zenbu, Aiiro datta Ilustrasi](https://zerokaito.blogspot.com/2024/01/zenbu-aiiro-datta-ilustrasi.html)
 - [Zenbu, Aiiro datta Bahasa Indonesia](https://zerokaito.blogspot.com/2024/01/zenbu-aiiro-datta-bahasa-indonesia.html)
 - [[LN] Saijou no Osewa Jilid 4 Bab 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/01/ln-saijou-no-osewa-jilid-4-bab-1-bahasa.html)
-- [[LN] Anti-NTR Jilid 3 Bab 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/01/ln-anti-ntr-jilid-3-bab-1-bahasa.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
