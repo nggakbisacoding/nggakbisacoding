@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Gimai Seikatsu Jilid 10 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/01/gimai-seikatsu-jilid-10-prolog-bahasa.html)
 - [[LN] Anti-NTR Jilid 3 Bab 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/01/ln-anti-ntr-jilid-3-bab-2-bahasa.html)
 - [Zenbu, Aiiro datta Bab 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/01/zenbu-aiiro-datta-bab-2-bahasa-indonesia.html)
 - [Zenbu, Aiiro datta Bab 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/01/zenbu-aiiro-datta-bab-1-bahasa-indonesia.html)
 - [Zenbu, Aiiro datta Ilustrasi](https://zerokaito.blogspot.com/2024/01/zenbu-aiiro-datta-ilustrasi.html)
-- [Zenbu, Aiiro datta Bahasa Indonesia](https://zerokaito.blogspot.com/2024/01/zenbu-aiiro-datta-bahasa-indonesia.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
