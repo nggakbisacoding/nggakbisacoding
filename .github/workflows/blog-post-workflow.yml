@@ -16,4 +16,4 @@ jobs:
       - name: Pull in web posts
         uses: gautamkrishnar/blog-post-workflow@v1
         with:
-          feed_list: "https://www.ruenovel.com/feeds/posts/default?alt=rss,https://zerokaito.blogspot.com/feeds/posts/default?alt=rss,https://meionovel.id/feed/"
+          feed_list: "https://www.ruenovel.com/feeds/posts/default?alt=rss,https://zerokaito.blogspot.com/feeds/posts/default?alt=rss"
