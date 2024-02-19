@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Gimai Seikatsu Jilid 10 Bab 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/02/gimai-seikatsu-jilid-10-bab-4-bahasa.html)
 - [Roshidere Jilid 8 Bab 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/02/roshidere-jilid-8-bab-2-bahasa-indonesia.html)
 - [[LN] Anti-NTR Jilid 3 Bab 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/02/ln-anti-ntr-jilid-3-bab-5-bahasa.html)
 - [[LN] Saijou no Osewa Jilid 4 Bab 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/02/ln-saijou-no-osewa-jilid-4-bab-4-bahasa.html)
 - [[LN] Anti-NTR Jilid 3 Bab 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/02/ln-anti-ntr-jilid-3-bab-4-bahasa.html)
-- [Gimai Seikatsu Jilid 10 Bab 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/02/gimai-seikatsu-jilid-10-bab-3-bahasa.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
