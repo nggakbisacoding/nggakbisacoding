@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [[LN] Saijou no Osewa Jilid 4 Bab SS Bahasa Indonesia](https://zerokaito.blogspot.com/2024/02/ln-saijou-no-osewa-jilid-4-bab-ss.html)
+- [[LN] Saijou no Osewa Jilid 4 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/02/ln-saijou-no-osewa-jilid-4-epilog.html)
 - [Roshidere Jilid 8 Bab 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/02/roshidere-jilid-8-bab-3-bahasa-indonesia.html)
 - [[LN] Anti-NTR Jilid 3 Bab 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/02/ln-anti-ntr-jilid-3-bab-6-bahasa.html)
 - [Hanayome wo Ryakudatsu Jilid 1 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/02/hanayome-wo-ryakudatsu-jilid-1-prolog.html)
-- [Hanayome wo Ryakudatsu sareta Ore wa Tada Heion ni Kurashitai Jilid 1 Ilustrasi](https://zerokaito.blogspot.com/2024/02/hanayome-wo-ryakudatsu-sareta-ore-wa.html)
-- [[LN] Otonari no Top Idol-sama Jilid 2  Ilustrasi](https://zerokaito.blogspot.com/2024/02/ln-otonari-no-top-idol-sama-jilid-2.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
