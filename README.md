@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
-- [[LN] Otonari no Top Idol-sama Jilid 2 Bab 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/03/ln-otonari-no-top-idol-sama-jilid-2-bab.html)
-- [[LN] Saijou no Osewa Jilid 4 Bab SS Bahasa Indonesia](https://zerokaito.blogspot.com/2024/02/ln-saijou-no-osewa-jilid-4-bab-ss.html)
-- [[LN] Saijou no Osewa Jilid 4 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/02/ln-saijou-no-osewa-jilid-4-epilog.html)
-- [Roshidere Jilid 8 Bab 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/02/roshidere-jilid-8-bab-3-bahasa-indonesia.html)
-- [[LN] Anti-NTR Jilid 3 Bab 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/02/ln-anti-ntr-jilid-3-bab-6-bahasa.html)
+- [Hanayome wo Ryakudatsu Jilid 1 Selingan 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/03/hanayome-wo-ryakudatsu-jilid-1-selingan.html)
+- [Hanayome wo Ryakudatsu Jilid 1 Bab 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/03/hanayome-wo-ryakudatsu-jilid-1-bab-1.html)
+- [[LN] Anti-NTR Jilid 3 Bab SS Bahasa Indonesia](https://zerokaito.blogspot.com/2024/03/ln-anti-ntr-jilid-3-bab-ss-bahasa.html)
+- [[LN] Anti-NTR Jilid 3 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/03/ln-anti-ntr-jilid-3-epilog-bahasa.html)
+- [Gimai Seikatsu Jili 10 Bab 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/03/gimai-seikatsu-jili-10-bab-6-bahasa.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
