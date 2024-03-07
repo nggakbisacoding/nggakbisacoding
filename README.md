@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Hanayome wo Ryakudatsu Jilid 1 Selingan 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/03/hanayome-wo-ryakudatsu-jilid-1-selingan_8.html)
+- [Hanayome wo Ryakudatsu Jilid 1 Bab 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/03/hanayome-wo-ryakudatsu-jilid-1-bab-3.html)
 - [Hanayome wo Ryakudatsu Jilid 1 Selingan 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/03/hanayome-wo-ryakudatsu-jilid-1-selingan_84.html)
 - [Hanayome wo Ryakudatsu Jilid 1 Selingan 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/03/hanayome-wo-ryakudatsu-jilid-1-selingan_7.html)
 - [Hanayome wo Ryakudatsu Jilid 1 Bab 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/03/hanayome-wo-ryakudatsu-jilid-1-bab-2.html)
-- [Roshidere Jilid 8 Bab 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/03/roshidere-jilid-8-bab-4-bahasa-indonesia.html)
-- [Hanayome wo Ryakudatsu Jilid 1 Selingan 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/03/hanayome-wo-ryakudatsu-jilid-1-selingan.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
