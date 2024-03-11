@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Tatoe mou Aenakutemo Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/03/tatoe-mou-aenakutemo-prolog-bahasa.html)
+- [Tatoe mou Aenakutemo, Kimi no Ita Kiseki wo Wasurenai Bahasa Indonesia](https://zerokaito.blogspot.com/2024/03/tatoe-mou-aenakutemo-kimi-no-ita-kiseki.html)
 - [Roshidere Jilid 8 Bab 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/03/roshidere-jilid-8-bab-5-bahasa-indonesia.html)
 - [Hanayome wo Ryakudatsu Jilid 1 Selingan 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/03/hanayome-wo-ryakudatsu-jilid-1-selingan_8.html)
 - [Hanayome wo Ryakudatsu Jilid 1 Bab 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/03/hanayome-wo-ryakudatsu-jilid-1-bab-3.html)
-- [Hanayome wo Ryakudatsu Jilid 1 Selingan 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/03/hanayome-wo-ryakudatsu-jilid-1-selingan_84.html)
-- [Hanayome wo Ryakudatsu Jilid 1 Selingan 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/03/hanayome-wo-ryakudatsu-jilid-1-selingan_7.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
