@@ -8,11 +8,11 @@
 
 - 👨‍💻 I’m currently Study at **[Vocational College](https://sv.ugm.ac.id/)**
   
-- 🌱 I’m currently learning **Tensorflow** and **PyTorch**
+- 🌱 I’m currently learning **Nothing**
   
 - ✉️ You can find me on Discord : **Nyahiro#7882** | **nyahiro**
   
-- ⚡ Fun fact: **I don't like front-end developers especially bootstrap**
+- ⚡ Fun fact: **I don't like front-end developers especially react**
 
 - As you can see according to my nickname, I'm a **weebs** and also an **introvert**
 
