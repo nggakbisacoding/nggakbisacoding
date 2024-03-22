@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
-- [Manga Tenohira Kaitakumura de Isekai Kenkouki Bahasa Indonesia](https://www.ruenovel.com/2024/03/manga-tenohira-kaitakumura-de-isekai.html)
+- [Tensei Goblin dakedo Shitsumon Aru? Bahasa Indonesia Manga](https://www.ruenovel.com/2024/03/manga-tensei-goblin-dakedo-shitsumon.html)
+- [Tenohira Kaitakumura de Isekai Kenkouki Bahasa Indonesia Manga](https://www.ruenovel.com/2024/03/manga-tenohira-kaitakumura-de-isekai.html)
 - [Nido Tensei Shita Shounen wa S Rank Boukensha Toshite Heion ni Sugosu Bahasa Indonesia Manga](https://www.ruenovel.com/2024/03/manga-nido-tensei-shita-shounen-wa-s.html)
 - [Kekkon ga Zentei no Love Comedy Bahasa Indonesia Manga](https://www.ruenovel.com/2024/03/manga-kekkon-ga-zentei-no-love-comedy.html)
 - [Kakkou no Iinazuke Bahasa Indonesia Manga](https://www.ruenovel.com/2024/03/manga-kakkou-no-iinazuke-bahasa.html)
-- [Ima wa Mada Osananajimi no Imouto Desu kedo Bahasa Indonesia Manga](https://www.ruenovel.com/2024/03/manga-ima-wa-mada-osananajimi-no-imouto.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
