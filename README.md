@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Gimai Seikatsu Jilid 10 Bab 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/03/gimai-seikatsu-jilid-10-bab-7-bahasa.html)
 - [Tsuki ga Michibiku Isekai Douchuu Bahasa Indonesia Manga](https://www.ruenovel.com/2024/03/manga-tsuki-ga-michibiku-isekai-douchuu.html)
 - [Tokimori-san ga Muboubi desu!! Bahasa Indonesia Manga](https://www.ruenovel.com/2024/03/manga-tokimori-san-ga-muboubi-desu.html)
 - [Tokidoki Bosotto Roshiago de Dereru Tonari no Alya-san Bahasa Indonesia Manga](https://www.ruenovel.com/2024/03/manga-tokidoki-bosotto-roshiago-de.html)
 - [Amagami-san Chi no Enmusubi Bahasa Indonesia Manga](https://www.ruenovel.com/2024/03/manga-amagami-san-chi-no-enmusubi.html)
-- [Roshidere Jilid 8 Bab 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/03/roshidere-jilid-8-bab-7-bahasa-indonesia.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
