@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Gimai Seikatsu Jilid 10 Bab 11 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/03/gimai-seikatsu-jilid-10-bab-11-bahasa.html)
+- [Tatoe mou Aenakutemo Bab 9 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/03/tatoe-mou-aenakutemo-bab-9-bahasa.html)
+- [Tatoe mou Aenakutemo Bab 8 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/03/tatoe-mou-aenakutemo-bab-8-bahasa.html)
+- [Tatoe mou Aenakutemo Bab 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/03/tatoe-mou-aenakutemo-bab-7-bahasa.html)
 - [Gimai Seikatsu Jilid 10 Bab 10 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/03/gimai-seikatsu-jilid-10-bab-10-bahasa.html)
-- [Gimai Seikatsu Jilid 10 Bab 9 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/03/gimai-seikatsu-jilid-10-bab-9-bahasa.html)
-- [Gimai Seikatsu Jilid 10 Bab 8 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/03/gimai-seikatsu-jilid-10-bab-8-bahasa.html)
-- [Tatoe mou Aenakutemo Bab 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/03/tatoe-mou-aenakutemo-bab-6-bahasa.html)
-- [Gimai Seikatsu Jilid 10 Bab 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/03/gimai-seikatsu-jilid-10-bab-7-bahasa.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
