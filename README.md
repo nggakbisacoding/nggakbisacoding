@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Roshidere Jilid 8 Kata Penutup](https://zerokaito.blogspot.com/2024/03/roshidere-jilid-8-kata-penutup.html)
+- [Roshidere Jilid 8 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/03/roshidere-jilid-8-epilog-bahasa.html)
+- [Roshidere JIlid 8 Bab 10 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/03/roshidere-jilid-8-bab-10-bahasa.html)
+- [Roshidere Jilid 8 Bab 9 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/03/roshidere-jilid-8-bab-9-bahasa-indonesia.html)
 - [Gimai Seikatsu jilid 10 Kisah Pendek](https://zerokaito.blogspot.com/2024/03/gimai-seikatsu-jilid-10-kisah-pendek.html)
-- [Gimai Seikatsu Jilid 10 Kata Penutup](https://zerokaito.blogspot.com/2024/03/gimai-seikatsu-jilid-10-kata-penutup.html)
-- [Gimai Seikatsu Jilid 10 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/03/gimai-seikatsu-jilid-10-epilog-bahasa.html)
-- [Gimai Seikatsu Jilid 10 Bab 12 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/03/gimai-seikatsu-jilid-10-bab-12-bahasa.html)
-- [Tatoe mou Aenakutemo Kata Penutup](https://zerokaito.blogspot.com/2024/03/tatoe-mou-aenakutemo-kata-penutup.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
