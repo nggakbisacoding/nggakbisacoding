@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Houkago, Famires de Volume 1 Bab 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/04/houkago-famires-de-volume-1-bab-2.html)
 - [[LN] Reset Seishun Jilid 2 Ilustrasi](https://zerokaito.blogspot.com/2024/04/ln-reset-seishun-jilid-2-ilustrasi.html)
 - [Roshidere Jilid 8 Kata Penutup](https://zerokaito.blogspot.com/2024/03/roshidere-jilid-8-kata-penutup.html)
 - [Roshidere Jilid 8 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/03/roshidere-jilid-8-epilog-bahasa.html)
 - [Roshidere JIlid 8 Bab 10 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/03/roshidere-jilid-8-bab-10-bahasa.html)
-- [Roshidere Jilid 8 Bab 9 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/03/roshidere-jilid-8-bab-9-bahasa-indonesia.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
