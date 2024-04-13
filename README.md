@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [The Undetectable Strongest Job: Rule Breaker Bahasa Indonesia Download](https://www.ruenovel.com/2024/04/the-undetectable-strongest-job-rule-download.html)
 - [Houkago, Famires de Volume 1 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/04/houkago-famires-de-volume-1-epilog.html)
 - [Houkago, Famires de Volume 1 Bab 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/04/houkago-famires-de-volume-1-bab-5.html)
 - [The Undetectable Strongest Job: Rule Breaker Bahasa Indonesia Illustrations Volume 2](https://www.ruenovel.com/2024/04/the-undetetable-strongest-job-ilustrations-volume2.html)
 - [The Undetectable Strongest Job: Rule Breaker Bahasa Indonesia Illustrations Volume 1](https://www.ruenovel.com/2024/04/the-undetetable-strongest-job-ilustrations-volume1.html)
-- [The Undetectable Strongest Job: Rule Breaker Bahasa Indonesia](https://www.ruenovel.com/2024/04/the-undetectable-strongest-job-rule.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
