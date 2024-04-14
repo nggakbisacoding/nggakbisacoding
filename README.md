@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Sasayaku You ni Koi o Utau  Bahasa Indonesia Manga](https://www.ruenovel.com/2024/04/manga-sasayaku-you-ni-koi-o-utau-bahasa.html)
+- [Real no Heroine wa Irimasen! Bahasa Indonesia Manga](https://www.ruenovel.com/2024/04/manga-real-no-heroine-wa-irimasen.html)
+- [Naze Boku no Sekai wo Dare mo Oboeteinainoka? Bahasa Indonesia Manga](https://www.ruenovel.com/2024/04/manga-naze-boku-no-sekai-wo-dare-mo.html)
+- [Isekai Tensei no Boukensha Bahasa Indonesia Manga](https://www.ruenovel.com/2024/04/manga-isekai-tensei-no-boukensha-bahasa.html)
 - [The Undetectable Strongest Job: Rule Breaker Bahasa Indonesia Download](https://www.ruenovel.com/2024/04/the-undetectable-strongest-job-rule-download.html)
-- [Houkago, Famires de Volume 1 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/04/houkago-famires-de-volume-1-epilog.html)
-- [Houkago, Famires de Volume 1 Bab 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/04/houkago-famires-de-volume-1-bab-5.html)
-- [The Undetectable Strongest Job: Rule Breaker Bahasa Indonesia Illustrations Volume 2](https://www.ruenovel.com/2024/04/the-undetetable-strongest-job-ilustrations-volume2.html)
-- [The Undetectable Strongest Job: Rule Breaker Bahasa Indonesia Illustrations Volume 1](https://www.ruenovel.com/2024/04/the-undetetable-strongest-job-ilustrations-volume1.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
