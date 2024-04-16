@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [The Undetectable Strongest Job: Rule Breaker Bahasa Indonesia Illustrations Volume 4](https://www.ruenovel.com/2024/04/the-undetetable-strongest-job-ilustrations-volume4.html)
+- [The Undetectable Strongest Job: Rule Breaker Bahasa Indonesia Illustrations Volume 3](https://www.ruenovel.com/2024/04/the-undeteable-strongest-job-ilustrations-volume3.html)
 - [Sasayaku You ni Koi o Utau  Bahasa Indonesia Manga](https://www.ruenovel.com/2024/04/manga-sasayaku-you-ni-koi-o-utau-bahasa.html)
 - [Real no Heroine wa Irimasen! Bahasa Indonesia Manga](https://www.ruenovel.com/2024/04/manga-real-no-heroine-wa-irimasen.html)
 - [Naze Boku no Sekai wo Dare mo Oboeteinainoka? Bahasa Indonesia Manga](https://www.ruenovel.com/2024/04/manga-naze-boku-no-sekai-wo-dare-mo.html)
-- [Isekai Tensei no Boukensha Bahasa Indonesia Manga](https://www.ruenovel.com/2024/04/manga-isekai-tensei-no-boukensha-bahasa.html)
-- [The Undetectable Strongest Job: Rule Breaker Bahasa Indonesia Download](https://www.ruenovel.com/2024/04/the-undetectable-strongest-job-rule-download.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
