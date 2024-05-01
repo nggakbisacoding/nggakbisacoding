@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [[LN] Reset Seishun Jilid 2 Bab 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/05/ln-reset-seishun-jilid-2-bab-3-bahasa.html)
 - [Otonari no Tenshi-sama Jilid 8.5 Bab 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/04/otonari-no-tenshi-sama-jilid-85-bab-2.html)
 - [[LN] Reset Seishun Jilid 2 Bab 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/04/ln-reset-seishun-jilid-2-bab-2-bahasa.html)
 - [[LN] Reset Seishun Jilid 2 Bab 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/04/ln-reset-seishun-jilid-2-bab-1-bahasa.html)
 - [The Undetectable Strongest Job: Rule Breaker Bahasa Indonesia  Volume 4 LN](https://www.ruenovel.com/2024/04/rule-breaker-LN-vol4-ID.html)
-- [The Undetectable Strongest Job: Rule Breaker Bahasa Indonesia  Volume 3 LN](https://www.ruenovel.com/2024/04/rule-breaker-LN-vol3-ID.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
