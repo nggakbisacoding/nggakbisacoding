@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Otonari no Tenshi-sama Jilid 8.5 Bab 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/05/otonari-no-tenshi-sama-jilid-85-bab-3.html)
 - [Kono Monogatari wo Kimi ni Sasagu Bab 1 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/05/kono-monogatari-wo-kimi-ni-sasagu-bab-1.html)
 - [Kono Monogatari wo Kimi ni Sasagu Bahasa Indonesia](https://zerokaito.blogspot.com/2024/05/kono-monogatari-wo-kimi-ni-sasagu.html)
 - [Kono Monogatari wo Kimi ni Sasagu Ilustrasi](https://zerokaito.blogspot.com/2024/05/kono-monogatari-wo-kimi-ni-sasagu_4.html)
 - [[LN] Reset Seishun Jilid 2 Bab 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/05/ln-reset-seishun-jilid-2-bab-3-bahasa.html)
-- [Otonari no Tenshi-sama Jilid 8.5 Bab 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/04/otonari-no-tenshi-sama-jilid-85-bab-2.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
