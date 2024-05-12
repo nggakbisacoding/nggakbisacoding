@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Kono Monogatari wo Kimi ni Sasagu Bab 1 Bagian 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/05/kono-monogatari-wo-kimi-ni-sasagu-bab-1_12.html)
 - [Otonari no Tenshi-sama Jilid 8.5 Bab 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/05/otonari-no-tenshi-sama-jilid-85-bab-6.html)
 - [[LN] Hanayome Shuugyou Volume 1 Ilustrasi](https://zerokaito.blogspot.com/2024/05/ln-hanayome-shuugyou-volume-1-ilustrasi.html)
 - [Otonari no Tenshi-sama Jilid 8.5 Bab 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/05/otonari-no-tenshi-sama-jilid-85-bab-5.html)
 - [Otonari no Tenshi-sama Jilid 8.5 Bab 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/05/otonari-no-tenshi-sama-jilid-85-bab-4.html)
-- [Kono Monogatari wo Kimi ni Sasagu Bab 1 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/05/kono-monogatari-wo-kimi-ni-sasagu-bab-1_6.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
