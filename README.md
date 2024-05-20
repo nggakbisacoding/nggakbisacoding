@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Woke Up Piloting the Strongest Starship, so I Became a Space Mercenary Bahasa Indonesia MangaI](https://www.ruenovel.com/2024/05/mangai-woke-up-piloting-strongest.html)
+- [Dorei Shounin shika Sentakushi ga nai desu yo? Bahasa Indonesia Manga](https://www.ruenovel.com/2024/05/manga-dorei-shounin-shika-sentakushi-ga.html)
 - [Kono Monogatari wo Kimi ni Sasagu Bab 1 Bagian 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/05/kono-monogatari-wo-kimi-ni-sasagu-bab-1_19.html)
 - [Otonari no Tenshi-sama Jilid 8.5 Bab 8 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/05/otonari-no-tenshi-sama-jilid-85-bab-8.html)
 - [Otonari no Tenshi-sama Jilid 8.5 Bab 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/05/otonari-no-tenshi-sama-jilid-85-bab-7.html)
-- [Kono Monogatari wo Kimi ni Sasagu Bab 1 Bagian 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/05/kono-monogatari-wo-kimi-ni-sasagu-bab-1_13.html)
-- [Kono Monogatari wo Kimi ni Sasagu Bab 1 Bagian 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/05/kono-monogatari-wo-kimi-ni-sasagu-bab-1_12.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
