@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Houkago, Famires de Volume 2 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/05/houkago-famires-de-volume-2-prolog.html)
+- [Houkago, Famires de Volume 2 Ilustrasi](https://zerokaito.blogspot.com/2024/05/houkago-famires-de-volume-2-ilustrasi.html)
 - [Isekai Craft Gurashi Bahasa Indonesia Manga](https://www.ruenovel.com/2024/05/manga-isekai-craft-gurashi-bahasa.html)
 - [Lonely Attack on the Different World Bahasa Indonesia Manga](https://www.ruenovel.com/2024/05/manga-lonely-attack-on-different-world.html)
 - [Tsuihou sareta Tensei Juukishi wa Game Chishiki de Musou suru Bahasa Indonesia Manga](https://www.ruenovel.com/2024/05/manga-tsuihou-sareta-tensei-juukishi-wa.html)
-- [Skeleton Knight, in Another World Bahasa Indonesia Manga](https://www.ruenovel.com/2024/05/manga-skeleton-knight-in-another-world.html)
-- [1-Nen A-gumi no Monster Bahasa Indonesia Manga](https://www.ruenovel.com/2024/05/manga-1-nen-gumi-no-monster-bahasa.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
