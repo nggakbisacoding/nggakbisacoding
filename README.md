@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Kono Monogatari wo Kimi ni Sasagu Bab 1 Bagian 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/05/kono-monogatari-wo-kimi-ni-sasagu-bab-1_24.html)
 - [Kimizero Jilid 7.5 Ilustrasi](https://zerokaito.blogspot.com/2024/05/kimizero-jilid-75-ilustrasi.html)
 - [Houkago, Famires de Volume 2 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/05/houkago-famires-de-volume-2-prolog.html)
 - [Houkago, Famires de Volume 2 Ilustrasi](https://zerokaito.blogspot.com/2024/05/houkago-famires-de-volume-2-ilustrasi.html)
 - [Isekai Craft Gurashi Bahasa Indonesia Manga](https://www.ruenovel.com/2024/05/manga-isekai-craft-gurashi-bahasa.html)
-- [Lonely Attack on the Different World Bahasa Indonesia Manga](https://www.ruenovel.com/2024/05/manga-lonely-attack-on-different-world.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
