@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Kimizero Jilid 7.5 Ilustrasi](https://zerokaito.blogspot.com/2024/05/kimizero-jilid-75-ilustrasi.html)
 - [Houkago, Famires de Volume 2 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/05/houkago-famires-de-volume-2-prolog.html)
 - [Houkago, Famires de Volume 2 Ilustrasi](https://zerokaito.blogspot.com/2024/05/houkago-famires-de-volume-2-ilustrasi.html)
 - [Isekai Craft Gurashi Bahasa Indonesia Manga](https://www.ruenovel.com/2024/05/manga-isekai-craft-gurashi-bahasa.html)
 - [Lonely Attack on the Different World Bahasa Indonesia Manga](https://www.ruenovel.com/2024/05/manga-lonely-attack-on-different-world.html)
-- [Tsuihou sareta Tensei Juukishi wa Game Chishiki de Musou suru Bahasa Indonesia Manga](https://www.ruenovel.com/2024/05/manga-tsuihou-sareta-tensei-juukishi-wa.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
