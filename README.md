@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [[LN] Reset Seishun Jilid 2 Bab 4 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/05/ln-reset-seishun-jilid-2-bab-4-bagian-1.html)
 - [[LN] Otonari no Top Idol-sama Jilid 2 Bab 2 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/05/ln-otonari-no-top-idol-sama-jilid-2-bab.html)
 - [[LN] Saijou no Osewa Jilid 5 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/05/ln-saijou-no-osewa-jilid-5-prolog.html)
 - [[LN] Saijou no Osewa Jilid 5 Ilustrasi](https://zerokaito.blogspot.com/2024/05/ln-saijou-no-osewa-jilid-5-ilustrasi.html)
 - [[LN] Hanayome Shuugyou Volume 1 Bab 1 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/05/ln-hanayome-shuugyou-volume-1-bab-1.html)
-- [Otonari no Tenshi-sama Jilid 8.5 Bab 9 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/05/otonari-no-tenshi-sama-jilid-85-bab-9.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
