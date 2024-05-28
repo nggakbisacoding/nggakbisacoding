@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Houkago, Famires de Volume 2 Bab 1 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/05/houkago-famires-de-volume-2-bab-1.html)
 - [Kono Monogatari wo Kimi ni Sasagu Bab 2 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/05/kono-monogatari-wo-kimi-ni-sasagu-bab-2.html)
 - [[LN] Reset Seishun Jilid 2 Bab 4 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/05/ln-reset-seishun-jilid-2-bab-4-bagian-1.html)
 - [[LN] Otonari no Top Idol-sama Jilid 2 Bab 2 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/05/ln-otonari-no-top-idol-sama-jilid-2-bab.html)
 - [[LN] Saijou no Osewa Jilid 5 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/05/ln-saijou-no-osewa-jilid-5-prolog.html)
-- [[LN] Saijou no Osewa Jilid 5 Ilustrasi](https://zerokaito.blogspot.com/2024/05/ln-saijou-no-osewa-jilid-5-ilustrasi.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
