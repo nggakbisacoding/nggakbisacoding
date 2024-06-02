@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [[LN] Saijou no Osewa Jilid 5 Bab 1 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/06/ln-saijou-no-osewa-jilid-5-bab-1-bagian.html)
 - [[LN] Hanayome Shuugyou Volume 1 Bab 1 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/06/ln-hanayome-shuugyou-volume-1-bab-1.html)
 - [Kono Monogatari wo Kimi ni Sasagu Bab 2 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/05/kono-monogatari-wo-kimi-ni-sasagu-bab-2_31.html)
 - [Kimizero Jilid 7.5 Bab 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/05/kimizero-jilid-75-bab-1-bahasa-indonesia.html)
 - [Houkago, Famires de Volume 2 Bab 1 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/05/houkago-famires-de-volume-2-bab-1.html)
-- [Kono Monogatari wo Kimi ni Sasagu Bab 2 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/05/kono-monogatari-wo-kimi-ni-sasagu-bab-2.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
