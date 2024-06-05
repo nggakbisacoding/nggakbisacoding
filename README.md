@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Kimizero Jilid 7.5 Bab 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/06/kimizero-jilid-75-bab-2-bahasa-indonesia.html)
 - [Houkago, Famires de Volume 2 Bab 1 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/06/houkago-famires-de-volume-2-bab-1.html)
 - [[LN] Reset Seishun Jilid 2 Bab 4.5 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/06/ln-reset-seishun-jilid-2-bab-45-bahasa.html)
 - [[LN] Reset Seishun Jilid 2 Bab 4 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/06/ln-reset-seishun-jilid-2-bab-4-bagian-2.html)
 - [[LN] Otonari no Top Idol-sama Jilid 2 Bab 2 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/06/ln-otonari-no-top-idol-sama-jilid-2-bab.html)
-- [[LN] Saijou no Osewa Jilid 5 Bab 1 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/06/ln-saijou-no-osewa-jilid-5-bab-1-bagian.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
