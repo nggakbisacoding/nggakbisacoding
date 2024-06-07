@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Kono Monogatari wo Kimi ni Sasagu Bab 2 Bagian 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/06/kono-monogatari-wo-kimi-ni-sasagu-bab-2_7.html)
+- [Kono Monogatari wo Kimi ni Sasagu Bab 2 Bagian 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/06/kono-monogatari-wo-kimi-ni-sasagu-bab-2.html)
 - [Kimizero Jilid 7.5 Bab 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/06/kimizero-jilid-75-bab-2-bahasa-indonesia.html)
 - [Houkago, Famires de Volume 2 Bab 1 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/06/houkago-famires-de-volume-2-bab-1.html)
 - [[LN] Reset Seishun Jilid 2 Bab 4.5 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/06/ln-reset-seishun-jilid-2-bab-45-bahasa.html)
-- [[LN] Reset Seishun Jilid 2 Bab 4 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/06/ln-reset-seishun-jilid-2-bab-4-bagian-2.html)
-- [[LN] Otonari no Top Idol-sama Jilid 2 Bab 2 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/06/ln-otonari-no-top-idol-sama-jilid-2-bab.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
