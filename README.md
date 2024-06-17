@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Isekai ni Otosare… Jouka wa Kihon! Bahasa Indonesia Manga](https://www.ruenovel.com/2024/06/manga-isekai-ni-otosare-jouka-wa-kihon.html)
+- [Hachinan tte, Sore wa Nai Deshou! Bahasa Indonesia Manga](https://www.ruenovel.com/2024/06/manga-hachinan-tte-sore-wa-nai-deshou.html)
 - [Class de 2 Banme ni Kawaii Onna no Ko to Tomodachi ni Natta Bahasa Indonesia Manga](https://www.ruenovel.com/2024/06/manga-class-de-2-banme-ni-kawaii-onna.html)
 - [A Neat and Pretty Girl at My New School is a Childhood Friend Who I Used to Play With Thinking She Was a Boy Bahasa Indonesia Manga](https://www.ruenovel.com/2024/06/manga-neat-and-pretty-girl-at-my-new.html)
 - [[LN] Otonari no Top Idol-sama Jilid 2 Bab 3 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/06/ln-otonari-no-top-idol-sama-jilid-2-bab_17.html)
-- [[LN] Saijou no Osewa Jilid 5 Bab 1 Bagian 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/06/ln-saijou-no-osewa-jilid-5-bab-1-bagian_16.html)
-- [[LN] Hanayome Shuugyou Volume 1 Bab 2 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/06/ln-hanayome-shuugyou-volume-1-bab-2.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
