@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Houkago, Famired de Volume 2 Bab 2.5 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/06/houkago-famired-de-volume-2-bab-25.html)
+- [Houkago, Famires de Volume 2 Bab 2 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/06/houkago-famires-de-volume-2-bab-2_19.html)
 - [Otonari no Tenshi-sama ni Itsu no Ma ni ka Dame Ningen ni Sareteita Ken Bahasa Indonesia Manga](https://www.ruenovel.com/2024/06/manga-otonari-no-tenshi-sama-ni-itsu-no.html)
 - [[LN] Reset Seishun Jilid 2 Bab 5 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/06/ln-reset-seishun-jilid-2-bab-5-bagian-2.html)
 - [Nazo no Kanojo X Bahasa Indonesia  Manga](https://www.ruenovel.com/2024/06/manga-nazo-no-kanojo-x-bahasa-indonesia.html)
-- [Isekai ni Otosare… Jouka wa Kihon! Bahasa Indonesia Manga](https://www.ruenovel.com/2024/06/manga-isekai-ni-otosare-jouka-wa-kihon.html)
-- [Hachinan tte, Sore wa Nai Deshou! Bahasa Indonesia Manga](https://www.ruenovel.com/2024/06/manga-hachinan-tte-sore-wa-nai-deshou.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
