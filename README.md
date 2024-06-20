@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Kono Monogatari wo Kimi ni Sasagu Bab 3 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/06/kono-monogatari-wo-kimi-ni-sasagu-bab-3.html)
 - [Kimizero Jilid 7.5 Kata Penutup](https://zerokaito.blogspot.com/2024/06/kimizero-jilid-75-kata-penutup.html)
 - [Kimizero Jilid 7.5 Bab 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/06/kimizero-jilid-75-bab-4-bahasa-indonesia.html)
 - [Houkago, Famired de Volume 2 Bab 2.5 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/06/houkago-famired-de-volume-2-bab-25.html)
 - [Houkago, Famires de Volume 2 Bab 2 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/06/houkago-famires-de-volume-2-bab-2_19.html)
-- [Otonari no Tenshi-sama ni Itsu no Ma ni ka Dame Ningen ni Sareteita Ken Bahasa Indonesia Manga](https://www.ruenovel.com/2024/06/manga-otonari-no-tenshi-sama-ni-itsu-no.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
