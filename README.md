@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Kimizero Jilid 7.5 Kata Penutup](https://zerokaito.blogspot.com/2024/06/kimizero-jilid-75-kata-penutup.html)
+- [Kimizero Jilid 7.5 Bab 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/06/kimizero-jilid-75-bab-4-bahasa-indonesia.html)
 - [Houkago, Famired de Volume 2 Bab 2.5 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/06/houkago-famired-de-volume-2-bab-25.html)
 - [Houkago, Famires de Volume 2 Bab 2 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/06/houkago-famires-de-volume-2-bab-2_19.html)
 - [Otonari no Tenshi-sama ni Itsu no Ma ni ka Dame Ningen ni Sareteita Ken Bahasa Indonesia Manga](https://www.ruenovel.com/2024/06/manga-otonari-no-tenshi-sama-ni-itsu-no.html)
-- [[LN] Reset Seishun Jilid 2 Bab 5 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/06/ln-reset-seishun-jilid-2-bab-5-bagian-2.html)
-- [Nazo no Kanojo X Bahasa Indonesia  Manga](https://www.ruenovel.com/2024/06/manga-nazo-no-kanojo-x-bahasa-indonesia.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
