@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [[LN] Reset Seishun Jilid 2 Bab 6 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/06/ln-reset-seishun-jilid-2-bab-6-bagian-1.html)
 - [[LN] Otonari no Top Idol-sama Jilid 2 Bab 4 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/06/ln-otonari-no-top-idol-sama-jilid-2-bab_25.html)
 - [Mirai-san wa Mitame Dake Jiraikei Bab 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/06/mirai-san-wa-mitame-dake-jiraikei-bab-1.html)
 - [Mirai-san wa Mitame Dake Jiraikei Ilustrasi](https://zerokaito.blogspot.com/2024/06/mirai-san-wa-mitame-dake-jiraikei.html)
 - [[LN] Saijou no Osewa Jilid 5 Bab 2 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/06/ln-saijou-no-osewa-jilid-5-bab-2-bagian.html)
-- [[LN] Hanayome Shuugyou Volume 1 Bab 2 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/06/ln-hanayome-shuugyou-volume-1-bab-2_22.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
