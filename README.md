@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Mirai-san wa Mitame Dake Jiraikei Bab 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/07/mirai-san-wa-mitame-dake-jiraikei-bab-5.html)
 - [Houkago, Famires de Volume 2 Bab 4 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/07/houkago-famires-de-volume-2-bab-4_17.html)
 - [[LN] Reset Seishun Jilid 2 Bab 8 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/07/ln-reset-seishun-jilid-2-bab-8-bagian-1.html)
 - [Clearing an Isekai with the Zero-Believers Goddess – The Weakest Mage among the Classmates Bahasa Indonesia Volume 11 LN](https://www.ruenovel.com/2024/07/clearing-iseai-LN-vol11-ID.html)
 - [Clearing an Isekai with the Zero-Believers Goddess – The Weakest Mage among the Classmates Bahasa Indonesia Volume 10 LN](https://www.ruenovel.com/2024/07/clearing-iseai-LN-vol10-ID.html)
-- [Clearing an Isekai with the Zero-Believers Goddess – The Weakest Mage among the Classmates Bahasa Indonesia Illustrations Volume 12](https://www.ruenovel.com/2024/07/clearing-isekai-with-zero-believers-illustrations--volume12.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
