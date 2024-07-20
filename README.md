@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [[LN] Saijou no Osewa Jilid 5 Bab 3 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/07/ln-saijou-no-osewa-jilid-5-bab-3-bagian_21.html)
 - [[LN] Hanayome Shuugyou Volume 1 Bab 3 Bagian 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/07/ln-hanayome-shuugyou-volume-1-bab-3_20.html)
 - [Otonari no Tenshi-sama Jilid 8.5 Bab 10 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/07/otonari-no-tenshi-sama-jilid-85-bab-10.html)
 - [Mirai-san wa Mitame Dake Jiraikei Bab 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/07/mirai-san-wa-mitame-dake-jiraikei-bab-5.html)
 - [Houkago, Famires de Volume 2 Bab 4 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/07/houkago-famires-de-volume-2-bab-4_17.html)
-- [[LN] Reset Seishun Jilid 2 Bab 8 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/07/ln-reset-seishun-jilid-2-bab-8-bagian-1.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
