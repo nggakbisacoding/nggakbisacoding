@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [[LN] Hanayome Shuugyou Volume 1 Bab SS Bahasa Indonesia](https://zerokaito.blogspot.com/2024/07/ln-hanayome-shuugyou-volume-1-bab-ss.html)
+- [[LN] Hanayome Shuugyou Volume 1 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/07/ln-hanayome-shuugyou-volume-1-epilog.html)
+- [[LN] Hanayome Shuugyou Volume 1 Bab 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/07/ln-hanayome-shuugyou-volume-1-bab-4.html)
 - [Kono Monogatari wo Kimi ni Sasagu Bab 3 Bagian 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/07/kono-monogatari-wo-kimi-ni-sasagu-bab-3_26.html)
 - [Gimai Seikatsu Volume 11 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/07/gimai-seikatsu-volume-11-prolog-bahasa.html)
-- [Houkago, Famires de Volume 2 Bab 5 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/07/houkago-famires-de-volume-2-bab-5.html)
-- [[LN] Reset Seishun Jilid 2 Bab 8 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/07/ln-reset-seishun-jilid-2-bab-8-bagian-2.html)
-- [Mirai-san wa Mitame Dake Jiraikei Bab 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/07/mirai-san-wa-mitame-dake-jiraikei-bab-6.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
