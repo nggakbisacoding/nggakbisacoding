@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
-- [[LN] Saijou no Osewa Jilid 5 Bab 3 Bagian 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/07/ln-saijou-no-osewa-jilid-5-bab-3-bagian_30.html)
-- [[LN] Otonari no Top Idol-sama Jilid 2 Bab 6 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/07/ln-otonari-no-top-idol-sama-jilid-2-bab_29.html)
-- [Gimai Seikatsu Volume 11 Chapter 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/07/gimai-seikatsu-volume-11-chapter-1.html)
-- [[LN] Hanayome Shuugyou Volume 1 Bab SS Bahasa Indonesia](https://zerokaito.blogspot.com/2024/07/ln-hanayome-shuugyou-volume-1-bab-ss.html)
-- [[LN] Hanayome Shuugyou Volume 1 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/07/ln-hanayome-shuugyou-volume-1-epilog.html)
+- [Sachi-iro no One Room Bahasa Indonesia Manga](https://www.ruenovel.com/2024/07/manga-sachi-iro-no-one-room-bahasa.html)
+- [Real mo Tama ni wa Uso wo Tsuku Bahasa Indonesia Manga](https://www.ruenovel.com/2024/07/manga-real-mo-tama-ni-wa-uso-wo-tsuku.html)
+- [Kaifuku Jutsushi no Yarinaoshi ~ Sokushi Mahou to Skill Copy no Choetsu Heal Bahasa Indonesia Manga](https://www.ruenovel.com/2024/07/manga-kaifuku-jutsushi-no-yarinaoshi.html)
+- [Kage no Eiyuu no Nichijou-tan Bahasa Indonesia Manga](https://www.ruenovel.com/2024/07/manga-kage-no-eiyuu-no-nichijou-tan.html)
+- [Fuufu Ijou, Koibito Miman. Bahasa Indonesia Manga](https://www.ruenovel.com/2024/07/manga-fuufu-ijou-koibito-miman-bahasa.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
