@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Houkago, Famires de Volume 2 Bab 5 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/07/houkago-famires-de-volume-2-bab-5_31.html)
 - [Sachi-iro no One Room Bahasa Indonesia Manga](https://www.ruenovel.com/2024/07/manga-sachi-iro-no-one-room-bahasa.html)
 - [Real mo Tama ni wa Uso wo Tsuku Bahasa Indonesia Manga](https://www.ruenovel.com/2024/07/manga-real-mo-tama-ni-wa-uso-wo-tsuku.html)
 - [Kaifuku Jutsushi no Yarinaoshi ~ Sokushi Mahou to Skill Copy no Choetsu Heal Bahasa Indonesia Manga](https://www.ruenovel.com/2024/07/manga-kaifuku-jutsushi-no-yarinaoshi.html)
 - [Kage no Eiyuu no Nichijou-tan Bahasa Indonesia Manga](https://www.ruenovel.com/2024/07/manga-kage-no-eiyuu-no-nichijou-tan.html)
-- [Fuufu Ijou, Koibito Miman. Bahasa Indonesia Manga](https://www.ruenovel.com/2024/07/manga-fuufu-ijou-koibito-miman-bahasa.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
