@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
-- [Mirai-san wa Mitame Dake Jiraikei Bab 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/mirai-san-wa-mitame-dake-jiraikei-bab-7.html)
-- [Isekai Tensei no Boukensha Bahasa Indonesia](https://www.ruenovel.com/2024/07/isekai-tensei-no-boukensha-ID-LN.html)
-- [Tanaka ke, Tensei suru Bahasa Indonesia  Manga](https://www.ruenovel.com/2024/07/manga-tanaka-ke-tensei-suru-bahasa.html)
-- [Houkago, Famires de Volume 2 Bab 5 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/07/houkago-famires-de-volume-2-bab-5_31.html)
-- [Sachi-iro no One Room Bahasa Indonesia Manga](https://www.ruenovel.com/2024/07/manga-sachi-iro-no-one-room-bahasa.html)
+- [Isekai Tensei no Boukensha Bahasa Indonesia Download](https://www.ruenovel.com/2024/08/isekai-tense-no-boukensha-download.html)
+- [Isekai Tensei no Boukensha Bahasa Indonesia Illustrations Volume 6](https://www.ruenovel.com/2024/08/isekai-tensei-no-boukensha-illustrations-volume6.html)
+- [Isekai Tensei no Boukensha Bahasa Indonesia Illustrations Volume 5](https://www.ruenovel.com/2024/08/isekai-tensei-no-boukensha-illustrations-volume5.html)
+- [Isekai Tensei no Boukensha Bahasa Indonesia Illustrations Volume 4](https://www.ruenovel.com/2024/08/isekai-tensei-no-boukensha-illustrations-volume4.html)
+- [Isekai Tensei no Boukensha Bahasa Indonesia Illustrations Volume 3](https://www.ruenovel.com/2024/08/ isekai-tensei-no-boukensha-illustrations-volume3.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
