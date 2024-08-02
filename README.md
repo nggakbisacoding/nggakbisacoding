@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
-- [Isekai Tensei no Boukensha Bahasa Indonesia Download](https://www.ruenovel.com/2024/08/isekai-tense-no-boukensha-download.html)
-- [Isekai Tensei no Boukensha Bahasa Indonesia Illustrations Volume 6](https://www.ruenovel.com/2024/08/isekai-tensei-no-boukensha-illustrations-volume6.html)
-- [Isekai Tensei no Boukensha Bahasa Indonesia Illustrations Volume 5](https://www.ruenovel.com/2024/08/isekai-tensei-no-boukensha-illustrations-volume5.html)
-- [Isekai Tensei no Boukensha Bahasa Indonesia Illustrations Volume 4](https://www.ruenovel.com/2024/08/isekai-tensei-no-boukensha-illustrations-volume4.html)
-- [Isekai Tensei no Boukensha Bahasa Indonesia Illustrations Volume 3](https://www.ruenovel.com/2024/08/ isekai-tensei-no-boukensha-illustrations-volume3.html)
+- [Otonari no Tenshi-sama Jilid 8.5 SS 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/otonari-no-tenshi-sama-jilid-85-ss-5.html)
+- [Otonari no Tenshi-sama Jilid 8.5 SS 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/otonari-no-tenshi-sama-jilid-85-ss-6.html)
+- [Otonari no Tenshi-sama Jilid 8.5 SS 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/otonari-no-tenshi-sama-jilid-85-ss-4.html)
+- [Otonari no Tenshi-sama Jilid 8.5 SS 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/otonari-no-tenshi-sama-jilid-85-ss-3.html)
+- [Otonari no Tenshi-sama Jilid 8.5 SS 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/otonari-no-tenshi-sama-jilid-85-ss-2.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
