@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [[LN] Otonari no Top Idol-sama Jilid 2 Bab 7 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/ln-otonari-no-top-idol-sama-jilid-2-bab.html)
 - [Kimi wa Houkago Insomnia Bahasa Indonesia  Manga](https://www.ruenovel.com/2024/08/manga-kimi-wa-houkago-insomnia-bahasa.html)
 - [manga Hazure Skill “Kage ga Usui” wo Motsu Guild Shokuin ga, Jitsu wa Densetsu no Ansatsusha Bahasa Indonesia Manga](https://www.ruenovel.com/2024/08/manga-hazure-skill-kage-ga-usui-wo.html)
 - [Tensei Kizoku, Kantei Skill de Nariagaru Bahasa Indonesia Manga](https://www.ruenovel.com/2024/08/manga-tensei-kizoku-kantei-skill-de.html)
 - [Gimai Seikatsu Volume 11 Chapter 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/gimai-seikatsu-volume-11-chapter-2.html)
-- [[LN] Saijou no Osewa Jilid 5 Bab 4 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/ln-saijou-no-osewa-jilid-5-bab-4-bagian.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
