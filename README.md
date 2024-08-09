@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Mirai-san wa Mitame Dake Jiraikei Bab 8 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/mirai-san-wa-mitame-dake-jiraikei-bab-8.html)
 - [Houkago, Famires de Volume 2 Bab 6 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/houkago-famires-de-volume-2-bab-6.html)
 - [[LN] Reset Seishun Jilid 2 Bab 9 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/ln-reset-seishun-jilid-2-bab-9-bagian-1.html)
 - [[LN] Otonari no Top Idol-sama Jilid 2 Bab 7 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/ln-otonari-no-top-idol-sama-jilid-2-bab.html)
 - [Kimi wa Houkago Insomnia Bahasa Indonesia  Manga](https://www.ruenovel.com/2024/08/manga-kimi-wa-houkago-insomnia-bahasa.html)
-- [manga Hazure Skill “Kage ga Usui” wo Motsu Guild Shokuin ga, Jitsu wa Densetsu no Ansatsusha Bahasa Indonesia Manga](https://www.ruenovel.com/2024/08/manga-hazure-skill-kage-ga-usui-wo.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
