@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [[LN] Saijou no Osewa Jilid 5 Bab 4 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/ln-saijou-no-osewa-jilid-5-bab-4-bagian_11.html)
 - [Mirai-san wa Mitame Dake Jiraikei Bab 8 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/mirai-san-wa-mitame-dake-jiraikei-bab-8.html)
 - [Houkago, Famires de Volume 2 Bab 6 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/houkago-famires-de-volume-2-bab-6.html)
 - [[LN] Reset Seishun Jilid 2 Bab 9 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/ln-reset-seishun-jilid-2-bab-9-bagian-1.html)
 - [[LN] Otonari no Top Idol-sama Jilid 2 Bab 7 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/ln-otonari-no-top-idol-sama-jilid-2-bab.html)
-- [Kimi wa Houkago Insomnia Bahasa Indonesia  Manga](https://www.ruenovel.com/2024/08/manga-kimi-wa-houkago-insomnia-bahasa.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
