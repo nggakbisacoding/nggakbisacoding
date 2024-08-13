@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [She Professed Herself The Pupil Of The Wiseman Bahasa Indonesia Manga](https://www.ruenovel.com/2024/08/manga-she-professed-herself-pupil-of.html)
+- [Shingan no Yuusha Bahasa Indonesia Manga](https://www.ruenovel.com/2024/08/manga-shingan-no-yuusha-bahasa.html)
 - [[LN] Reset Seishun Jilid 2 Bab 9 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/ln-reset-seishun-jilid-2-bab-9-bagian-2.html)
 - [Roshidere Bab SS Spesial Penayangan Anime Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/roshidere-bab-ss-spesial-penayangan.html)
 - [[LN] Otonari no Top Idol-sama Jilid 2 Bab 7 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/ln-otonari-no-top-idol-sama-jilid-2-bab_12.html)
-- [[LN] Saijou no Osewa Jilid 5 Bab 4 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/ln-saijou-no-osewa-jilid-5-bab-4-bagian_11.html)
-- [Mirai-san wa Mitame Dake Jiraikei Bab 8 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/mirai-san-wa-mitame-dake-jiraikei-bab-8.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
