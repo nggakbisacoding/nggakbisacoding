@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Gimai Seikatsu Volume 11 Chapter 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/gimai-seikatsu-volume-11-chapter-3.html)
 - [Houkago, Famires de Volume 2 Bab 6 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/houkago-famires-de-volume-2-bab-6_14.html)
 - [She Professed Herself The Pupil Of The Wiseman Bahasa Indonesia Manga](https://www.ruenovel.com/2024/08/manga-she-professed-herself-pupil-of.html)
 - [Shingan no Yuusha Bahasa Indonesia Manga](https://www.ruenovel.com/2024/08/manga-shingan-no-yuusha-bahasa.html)
 - [[LN] Reset Seishun Jilid 2 Bab 9 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/ln-reset-seishun-jilid-2-bab-9-bagian-2.html)
-- [Roshidere Bab SS Spesial Penayangan Anime Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/roshidere-bab-ss-spesial-penayangan.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
