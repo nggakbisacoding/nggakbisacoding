@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [[LN] Saijou no Osewa Jilid 5 Bab 4 Bagian 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/ln-saijou-no-osewa-jilid-5-bab-4-bagian_18.html)
 - [Mirai-san wa Mitame Dake Jiraikei Bab 9 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/mirai-san-wa-mitame-dake-jiraikei-bab-9.html)
 - [Houkago, Famires de Volume 2 Epilog 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/houkago-famires-de-volume-2-epilog-2.html)
 - [Houkago, Famires de Volume 2 Epilog 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/houkago-famires-de-volume-2-epilog-1.html)
 - [Gimai Seikatsu Volume 11 Chapter 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/gimai-seikatsu-volume-11-chapter-3.html)
-- [Houkago, Famires de Volume 2 Bab 6 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/houkago-famires-de-volume-2-bab-6_14.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
