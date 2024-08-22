@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Mirai-san wa Mitame Dake Jiraikei Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/mirai-san-wa-mitame-dake-jiraikei.html)
+- [Mirai-san wa Mitame Dake Jiraikei Bab 12 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/mirai-san-wa-mitame-dake-jiraikei-bab_43.html)
+- [Mirai-san wa Mitame Dake Jiraikei Bab 11 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/mirai-san-wa-mitame-dake-jiraikei-bab_23.html)
+- [Mirai-san wa Mitame Dake Jiraikei Bab 10 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/mirai-san-wa-mitame-dake-jiraikei-bab.html)
 - [Gimai Seikatsu Volume 11 Chapter 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/gimai-seikatsu-volume-11-chapter-4.html)
-- [[LN] Reset Seishun Jilid 2 Bab 10 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/ln-reset-seishun-jilid-2-bab-10-bagian.html)
-- [[LN] Otonari no Top Idol-sama Jilid 2 Bab 8 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/ln-otonari-no-top-idol-sama-jilid-2-bab_20.html)
-- [Kimizero Jilid 8 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/kimizero-jilid-8-prolog-bahasa-indonesia.html)
-- [Kimizero JIlid 8 Ilustrasi](https://zerokaito.blogspot.com/2024/08/kimizero-jilid-8-ilustrasi.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
