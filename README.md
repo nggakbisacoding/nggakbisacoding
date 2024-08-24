@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Kono Monogatari wo Kimi ni Sasagu Bab 3 Bagian 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/kono-monogatari-wo-kimi-ni-sasagu-bab-3.html)
 - [Fairy Tail: 100 Years Quest Bahasa Indonesia Manga](https://www.ruenovel.com/2024/08/manga-fairy-tail-100-years-quest-bahasa.html)
 - [The Greatest Magicmaster’s Retirement Plan – The Alternative Bahasa Indonesia Manga](https://www.ruenovel.com/2024/08/manga-greatest-magicmasters-retirement.html)
 - [Mirai-san wa Mitame Dake Jiraikei Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/mirai-san-wa-mitame-dake-jiraikei.html)
 - [Mirai-san wa Mitame Dake Jiraikei Bab 12 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/mirai-san-wa-mitame-dake-jiraikei-bab_43.html)
-- [Mirai-san wa Mitame Dake Jiraikei Bab 11 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/mirai-san-wa-mitame-dake-jiraikei-bab_23.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
