@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Roshidere Jilid 9 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/roshidere-jilid-9-prolog-bahasa.html)
+- [Roshidere Jilid 9 Ilustrasi](https://zerokaito.blogspot.com/2024/08/roshidere-jilid-9-ilustrasi.html)
 - [[LN] Otonari no Top Idol-sama Jilid 2 Bab 8 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/ln-otonari-no-top-idol-sama-jilid-2-bab_26.html)
 - [[LN] Saijou no Osewa Jilid 5 Bab SS Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/ln-saijou-no-osewa-jilid-5-bab-ss.html)
 - [[LN] Saijou no Osewa Bab 5 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/ln-saijou-no-osewa-bab-5-epilog-bahasa.html)
-- [Kono Monogatari wo Kimi ni Sasagu Bab 3 Bagian 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/kono-monogatari-wo-kimi-ni-sasagu-bab-3.html)
-- [Fairy Tail: 100 Years Quest Bahasa Indonesia Manga](https://www.ruenovel.com/2024/08/manga-fairy-tail-100-years-quest-bahasa.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
