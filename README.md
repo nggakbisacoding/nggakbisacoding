@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Gimai Seikatsu Volume 11 Chapter 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/gimai-seikatsu-volume-11-chapter-5.html)
 - [[LN] Reset Seishun Jilid 2 Bab 10 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/ln-reset-seishun-jilid-2-bab-10-bagian_28.html)
 - [Roshidere Jilid 9 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/roshidere-jilid-9-prolog-bahasa.html)
 - [Roshidere Jilid 9 Ilustrasi](https://zerokaito.blogspot.com/2024/08/roshidere-jilid-9-ilustrasi.html)
 - [[LN] Otonari no Top Idol-sama Jilid 2 Bab 8 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/ln-otonari-no-top-idol-sama-jilid-2-bab_26.html)
-- [[LN] Saijou no Osewa Jilid 5 Bab SS Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/ln-saijou-no-osewa-jilid-5-bab-ss.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
