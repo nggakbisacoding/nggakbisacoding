@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Kimizero Jilid 8 Bab 1.5 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/kimizero-jilid-8-bab-15-bahasa-indonesia.html)
+- [Kimizero Jilid 8 Bab 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/kimizero-jilid-8-bab-1-bahasa-indonesia.html)
 - [Shijou Saikyou no Daimaou Murabito A ni Tensei Suru Bahasa Indonesia Illustrations Volume 10](https://www.ruenovel.com/2024/08/shijou-saikyou-no-daimaou-murabito-ni-illustrations-volume10.html)
 - [Shijou Saikyou no Daimaou Murabito A ni Tensei Suru Bahasa Indonesia Illustrations Volume 9](https://www.ruenovel.com/2024/08/hijou-saikyou-no-daimaou-murabito-ni-illustrations-volume9.html)
 - [Shijou Saikyou no Daimaou Murabito A ni Tensei Suru Bahasa Indonesia Illustrations Volume 8](https://www.ruenovel.com/2024/08/shijou-saikyou-no-daimaou-murabito-ni-illustrations-volume8.html)
-- [Shijou Saikyou no Daimaou Murabito A ni Tensei Suru Bahasa Indonesia Illustrations Volume 7](https://www.ruenovel.com/2024/08/shijou-saikyou-no-daimaou-murabito-ni-illustrations-volume7.html)
-- [Gimai Seikatsu Volume 11 Chapter 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/gimai-seikatsu-volume-11-chapter-5.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
