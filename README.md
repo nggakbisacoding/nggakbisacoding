@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Shijou Saikyou no Daimaou Murabito A ni Tensei Suru Bahasa Indonesia Illustrations Volume 10](https://www.ruenovel.com/2024/08/shijou-saikyou-no-daimaou-murabito-ni-illustrations-volume10.html)
+- [Shijou Saikyou no Daimaou Murabito A ni Tensei Suru Bahasa Indonesia Illustrations Volume 9](https://www.ruenovel.com/2024/08/hijou-saikyou-no-daimaou-murabito-ni-illustrations-volume9.html)
+- [Shijou Saikyou no Daimaou Murabito A ni Tensei Suru Bahasa Indonesia Illustrations Volume 8](https://www.ruenovel.com/2024/08/shijou-saikyou-no-daimaou-murabito-ni-illustrations-volume8.html)
+- [Shijou Saikyou no Daimaou Murabito A ni Tensei Suru Bahasa Indonesia Illustrations Volume 7](https://www.ruenovel.com/2024/08/shijou-saikyou-no-daimaou-murabito-ni-illustrations-volume7.html)
 - [Gimai Seikatsu Volume 11 Chapter 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/gimai-seikatsu-volume-11-chapter-5.html)
-- [[LN] Reset Seishun Jilid 2 Bab 10 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/ln-reset-seishun-jilid-2-bab-10-bagian_28.html)
-- [Roshidere Jilid 9 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/roshidere-jilid-9-prolog-bahasa.html)
-- [Roshidere Jilid 9 Ilustrasi](https://zerokaito.blogspot.com/2024/08/roshidere-jilid-9-ilustrasi.html)
-- [[LN] Otonari no Top Idol-sama Jilid 2 Bab 8 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/ln-otonari-no-top-idol-sama-jilid-2-bab_26.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
