@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Kono Monogatari wo Kimi ni Sasagu Bab 3 Bagian 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/kono-monogatari-wo-kimi-ni-sasagu-bab-3_31.html)
 - [Kimizero Jilid 8 Bab 1.5 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/kimizero-jilid-8-bab-15-bahasa-indonesia.html)
 - [Kimizero Jilid 8 Bab 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/kimizero-jilid-8-bab-1-bahasa-indonesia.html)
 - [Shijou Saikyou no Daimaou Murabito A ni Tensei Suru Bahasa Indonesia Illustrations Volume 10](https://www.ruenovel.com/2024/08/shijou-saikyou-no-daimaou-murabito-ni-illustrations-volume10.html)
 - [Shijou Saikyou no Daimaou Murabito A ni Tensei Suru Bahasa Indonesia Illustrations Volume 9](https://www.ruenovel.com/2024/08/hijou-saikyou-no-daimaou-murabito-ni-illustrations-volume9.html)
-- [Shijou Saikyou no Daimaou Murabito A ni Tensei Suru Bahasa Indonesia Illustrations Volume 8](https://www.ruenovel.com/2024/08/shijou-saikyou-no-daimaou-murabito-ni-illustrations-volume8.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
