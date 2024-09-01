@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Roshidere Jilid 9 Bab 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/roshidere-jilid-9-bab-1-bahasa-indonesia.html)
 - [[LN] Saijou no Osewa Jilid 6 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/ln-saijou-no-osewa-jilid-6-prolog.html)
 - [[LN] Saijou no Osewa Jilid 6 Ilustrasi](https://zerokaito.blogspot.com/2024/09/ln-saijou-no-osewa-jilid-6-ilustrasi.html)
 - [Kono Monogatari wo Kimi ni Sasagu Bab 3 Bagian 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/kono-monogatari-wo-kimi-ni-sasagu-bab-3_31.html)
 - [Kimizero Jilid 8 Bab 1.5 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/kimizero-jilid-8-bab-15-bahasa-indonesia.html)
-- [Kimizero Jilid 8 Bab 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/kimizero-jilid-8-bab-1-bahasa-indonesia.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
