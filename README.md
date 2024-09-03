@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Chi – Chikyuu no Undou ni Tsuite Bahasa Indonesia Manga](https://www.ruenovel.com/2024/09/manga-chi-chikyuu-no-undou-ni-tsuite.html)
+- [Otonari no Tenshi-sama ni Itsu no Ma ni ka Dame Ningen ni Sareteita Ken Bahasa Indonesia Download](https://www.ruenovel.com/2020/05/otonari-no-tenshi-sama-ni-itsu-no-ma-ni.html)
+- [A Demon Lord’s Tale: Dungeons, Monster Girls, and Heartwarming Bliss Bahasa Indonesia Download](https://www.ruenovel.com/2020/05/a-demon-lords-tale-dungeons-monster.html)
 - [[LN] Otonari no Top Idol-sama Jilid 2 Bab 9 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/ln-otonari-no-top-idol-sama-jilid-2-bab.html)
 - [Roshidere Jilid 9 Bab 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/roshidere-jilid-9-bab-1-bahasa-indonesia.html)
-- [[LN] Saijou no Osewa Jilid 6 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/ln-saijou-no-osewa-jilid-6-prolog.html)
-- [[LN] Saijou no Osewa Jilid 6 Ilustrasi](https://zerokaito.blogspot.com/2024/09/ln-saijou-no-osewa-jilid-6-ilustrasi.html)
-- [Kono Monogatari wo Kimi ni Sasagu Bab 3 Bagian 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/08/kono-monogatari-wo-kimi-ni-sasagu-bab-3_31.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
