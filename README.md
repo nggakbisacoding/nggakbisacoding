@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [[LN] Reset Seishun Jilid 2 Bab 11 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/ln-reset-seishun-jilid-2-bab-11-bagian.html)
 - [Chi – Chikyuu no Undou ni Tsuite Bahasa Indonesia Manga](https://www.ruenovel.com/2024/09/manga-chi-chikyuu-no-undou-ni-tsuite.html)
 - [Otonari no Tenshi-sama ni Itsu no Ma ni ka Dame Ningen ni Sareteita Ken Bahasa Indonesia Download](https://www.ruenovel.com/2020/05/otonari-no-tenshi-sama-ni-itsu-no-ma-ni.html)
 - [A Demon Lord’s Tale: Dungeons, Monster Girls, and Heartwarming Bliss Bahasa Indonesia Download](https://www.ruenovel.com/2020/05/a-demon-lords-tale-dungeons-monster.html)
 - [[LN] Otonari no Top Idol-sama Jilid 2 Bab 9 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/ln-otonari-no-top-idol-sama-jilid-2-bab.html)
-- [Roshidere Jilid 9 Bab 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/roshidere-jilid-9-bab-1-bahasa-indonesia.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
