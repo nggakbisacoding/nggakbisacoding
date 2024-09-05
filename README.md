@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Ijiranaide, Nagatoro-san Bahasa Indonesia Manga](https://www.ruenovel.com/2024/09/manga-ijiranaide-nagatoro-san-bahasa.html)
 - [Gimai Seikatsu Volume 11 Chapter 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/gimai-seikatsu-volume-11-chapter-6.html)
 - [[LN] Reset Seishun Jilid 2 Bab 11 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/ln-reset-seishun-jilid-2-bab-11-bagian.html)
 - [Chi – Chikyuu no Undou ni Tsuite Bahasa Indonesia Manga](https://www.ruenovel.com/2024/09/manga-chi-chikyuu-no-undou-ni-tsuite.html)
 - [Otonari no Tenshi-sama ni Itsu no Ma ni ka Dame Ningen ni Sareteita Ken Bahasa Indonesia Download](https://www.ruenovel.com/2020/05/otonari-no-tenshi-sama-ni-itsu-no-ma-ni.html)
-- [A Demon Lord’s Tale: Dungeons, Monster Girls, and Heartwarming Bliss Bahasa Indonesia Download](https://www.ruenovel.com/2020/05/a-demon-lords-tale-dungeons-monster.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
