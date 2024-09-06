@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Kono Monogatari wo Kimi ni Sasagu Bab 0 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/kono-monogatari-wo-kimi-ni-sasagu-bab-0.html)
+- [Kono Monogatari wo Kimi ni Sasagu Kata Penutup](https://zerokaito.blogspot.com/2024/09/kono-monogatari-wo-kimi-ni-sasagu-kata.html)
+- [Kono Monogatari wo Kimi ni Sasagu Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/kono-monogatari-wo-kimi-ni-sasagu.html)
+- [Kono Monogatari wo Kimi ni Sasagu Bab 3 Bagian 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/kono-monogatari-wo-kimi-ni-sasagu-bab-3.html)
 - [Kimizero Jilid 8 Bab 2.5 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/kimizero-jilid-8-bab-25-bahasa-indonesia.html)
-- [Kimizero Jilid 8 Bab 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/kimizero-jilid-8-bab-2-bahasa-indonesia.html)
-- [Ijiranaide, Nagatoro-san Bahasa Indonesia Manga](https://www.ruenovel.com/2024/09/manga-ijiranaide-nagatoro-san-bahasa.html)
-- [Gimai Seikatsu Volume 11 Chapter 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/gimai-seikatsu-volume-11-chapter-6.html)
-- [[LN] Reset Seishun Jilid 2 Bab 11 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/ln-reset-seishun-jilid-2-bab-11-bagian.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
