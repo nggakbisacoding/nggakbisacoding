@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [[LN] Otonari no Top Idol-sama Jilid 2 Bab SS Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/ln-otonari-no-top-idol-sama-jilid-2-bab_13.html)
+- [[LN] Otonari no Top Idol-sama Jilid 2 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/ln-otonari-no-top-idol-sama-jilid-2.html)
+- [[LN] Otonari no Top Idol-sama Jilid 2 Bab 9 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/ln-otonari-no-top-idol-sama-jilid-2-bab_10.html)
 - [Roshidere Jilid 9 Bab 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/roshidere-jilid-9-bab-2-bahasa-indonesia.html)
 - [[LN] Saijou no Osewa Jilid 6 Bab 1 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/ln-saijou-no-osewa-jilid-6-bab-1-bagian.html)
-- [Kono Monogatari wo Kimi ni Sasagu Bab 0 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/kono-monogatari-wo-kimi-ni-sasagu-bab-0.html)
-- [Kono Monogatari wo Kimi ni Sasagu Kata Penutup](https://zerokaito.blogspot.com/2024/09/kono-monogatari-wo-kimi-ni-sasagu-kata.html)
-- [Kono Monogatari wo Kimi ni Sasagu Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/kono-monogatari-wo-kimi-ni-sasagu.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
