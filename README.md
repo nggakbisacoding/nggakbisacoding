@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Shijou Saikyou no Daimaou Murabito A ni Tensei Suru Bahasa Indonesia Download](https://www.ruenovel.com/2020/03/shijou-saikyou-no-daimaou-murabito-ni-download.html)
+- [Level 99 Villainous Daughter Bahasa Indonesia Download](https://www.ruenovel.com/2021/03/level-99-villainous-daughter-bahasa-download.html)
 - [[LN] Otonari no Top Idol-sama Jilid 2 Bab SS Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/ln-otonari-no-top-idol-sama-jilid-2-bab_13.html)
 - [[LN] Otonari no Top Idol-sama Jilid 2 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/ln-otonari-no-top-idol-sama-jilid-2.html)
 - [[LN] Otonari no Top Idol-sama Jilid 2 Bab 9 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/ln-otonari-no-top-idol-sama-jilid-2-bab_10.html)
-- [Roshidere Jilid 9 Bab 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/roshidere-jilid-9-bab-2-bahasa-indonesia.html)
-- [[LN] Saijou no Osewa Jilid 6 Bab 1 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/ln-saijou-no-osewa-jilid-6-bab-1-bagian.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
