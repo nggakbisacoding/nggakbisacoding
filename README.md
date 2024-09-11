@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Gimai Seikatsu Volume 11 Chapter 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/gimai-seikatsu-volume-11-chapter-7.html)
 - [[LN] Reset Seishun Jilid 2 Bab SS Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/ln-reset-seishun-jilid-2-bab-ss-bahasa.html)
 - [[LN] Reset Seishun Jilid 2 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/ln-reset-seishun-jilid-2-epilog-bahasa.html)
 - [[LN] Reset Seishun Jilid 2 Bab 11 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/ln-reset-seishun-jilid-2-bab-11-bagian_11.html)
 - [Shijou Saikyou no Daimaou Murabito A ni Tensei Suru Bahasa Indonesia Download](https://www.ruenovel.com/2020/03/shijou-saikyou-no-daimaou-murabito-ni-download.html)
-- [Level 99 Villainous Daughter Bahasa Indonesia Download](https://www.ruenovel.com/2021/03/level-99-villainous-daughter-bahasa-download.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
