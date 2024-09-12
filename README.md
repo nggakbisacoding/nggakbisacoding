@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Kimizero Jilid 8 Bab 3.5 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/kimizero-jilid-8-bab-35-bahasa-indonesia.html)
+- [Kimizero Jilid 8 Bab 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/kimizero-jilid-8-bab-3-bahasa-indonesia.html)
 - [Roshidere Jilid 9 Bab 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/roshidere-jilid-9-bab-3-bahasa-indonesia.html)
 - [Gimai Seikatsu Volume 11 Chapter 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/gimai-seikatsu-volume-11-chapter-7.html)
 - [[LN] Reset Seishun Jilid 2 Bab SS Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/ln-reset-seishun-jilid-2-bab-ss-bahasa.html)
-- [[LN] Reset Seishun Jilid 2 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/ln-reset-seishun-jilid-2-epilog-bahasa.html)
-- [[LN] Reset Seishun Jilid 2 Bab 11 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/ln-reset-seishun-jilid-2-bab-11-bagian_11.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
