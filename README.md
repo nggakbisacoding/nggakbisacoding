@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [[LN] Saijou no Osewa Jilid 6 Bab 1 Bagian 2 Bahasa Indonsia](https://zerokaito.blogspot.com/2024/09/ln-saijou-no-osewa-jilid-6-bab-1-bagian_15.html)
 - [Otonari no Tenshi-sama Jilid 9 Bab 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/otonari-no-tenshi-sama-jilid-9-bab-1.html)
 - [Otonari no Tenshi-sama Jilid 9 Ilustrasi](https://zerokaito.blogspot.com/2024/09/otonari-no-tenshi-sama-jilid-9-ilustrasi.html)
 - [Kimizero Jilid 8 Bab 3.5 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/kimizero-jilid-8-bab-35-bahasa-indonesia.html)
 - [Kimizero Jilid 8 Bab 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/kimizero-jilid-8-bab-3-bahasa-indonesia.html)
-- [Roshidere Jilid 9 Bab 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/roshidere-jilid-9-bab-3-bahasa-indonesia.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
