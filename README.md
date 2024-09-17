@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Class de 2 Banme ni Kawaii Onna no Ko to Tomodachi ni Natta Bahasa Indonesia Manga](https://www.ruenovel.com/2024/09/manga-class-de-2-banme-ni-kawaii-onna.html)
+- [Shiotaiou no Sato-san ga Ore ni dake Amai Bahasa Indonesia  Manga](https://www.ruenovel.com/2024/09/manga-shiotaiou-no-sato-san-ga-ore-ni.html)
 - [[LN] Anti-NTR Jilid 4 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/ln-anti-ntr-jilid-4-prolog-bahasa.html)
 - [[LN] Anti-NTR Jilid 4 Ilustrasi](https://zerokaito.blogspot.com/2024/09/ln-anti-ntr-jilid-4-ilustrasi.html)
 - [Otonari no Tenshi-sama Jilid 9 Bab 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/otonari-no-tenshi-sama-jilid-9-bab-2.html)
-- [[LN] Saijou no Osewa Jilid 6 Bab 1 Bagian 2 Bahasa Indonsia](https://zerokaito.blogspot.com/2024/09/ln-saijou-no-osewa-jilid-6-bab-1-bagian_15.html)
-- [Otonari no Tenshi-sama Jilid 9 Bab 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/otonari-no-tenshi-sama-jilid-9-bab-1.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
