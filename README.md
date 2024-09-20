@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Kimizero Jilid 8 Bab 4.5 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/kimizero-jilid-8-bab-45-bahasa-indonesia.html)
+- [Kimizero Jilid 8 Bab 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/kimizero-jilid-8-bab-4-bahasa-indonesia.html)
 - [Gimai Seikatsu Volume 11 Chapter 8 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/gimai-seikatsu-volume-11-chapter-8.html)
 - [Magic Gems Gourmet Bahasa Indonesia  Manga](https://www.ruenovel.com/2024/09/manga-magic-gems-gourmet-bahasa.html)
 - [Isekai Saikouhou no Guild Leader Bahasa Indonesia Manga](https://www.ruenovel.com/2024/09/manga-isekai-saikouhou-no-guild-leader.html)
-- [Roshidere Jilid 9 Bab 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/roshidere-jilid-9-bab-4-bahasa-indonesia.html)
-- [Class de 2 Banme ni Kawaii Onna no Ko to Tomodachi ni Natta Bahasa Indonesia Manga](https://www.ruenovel.com/2024/09/manga-class-de-2-banme-ni-kawaii-onna.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
