@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Kore wa Akumade, Mamagoto Volume 1 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/kore-wa-akumade-mamagoto-volume-1.html)
+- [Kore wa Akumade, Mamagoto Dakara Volume 1 Ilustrasi](https://zerokaito.blogspot.com/2024/09/kore-wa-akumade-mamagoto-dakara-volume.html)
 - [[LN] Saijou no Osewa Jilid 6 Bab 1 Bagian 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/ln-saijou-no-osewa-jilid-6-bab-1-bagian_22.html)
 - [Otonari no Tenshi-sama Jilid 9 Bab 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/otonari-no-tenshi-sama-jilid-9-bab-3.html)
 - [Kimizero Jilid 8 Bab 4.5 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/kimizero-jilid-8-bab-45-bahasa-indonesia.html)
-- [Kimizero Jilid 8 Bab 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/kimizero-jilid-8-bab-4-bahasa-indonesia.html)
-- [Gimai Seikatsu Volume 11 Chapter 8 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/gimai-seikatsu-volume-11-chapter-8.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
