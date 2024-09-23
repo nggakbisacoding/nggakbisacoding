@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [[LN] Anti-NTR Jilid 4 Bab 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/ln-anti-ntr-jilid-4-bab-1-bahasa.html)
 - [Kimizero Jilid 8 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/kimizero-jilid-8-epilog-bahasa-indonesia.html)
 - [Kimizero Jilid 8 Bab 5.5 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/kimizero-jilid-8-bab-55-bahasa-indonesia.html)
 - [Kimizero Jilid 8 Bab 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/kimizero-jilid-8-bab-5-bahasa-indonesia.html)
 - [Kore wa Akumade, Mamagoto Volume 1 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/kore-wa-akumade-mamagoto-volume-1.html)
-- [Kore wa Akumade, Mamagoto Dakara Volume 1 Ilustrasi](https://zerokaito.blogspot.com/2024/09/kore-wa-akumade-mamagoto-dakara-volume.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
