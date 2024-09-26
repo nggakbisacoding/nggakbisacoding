@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
-- [Gimai Seikatsu Volume 11 Chapter SS Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/gimai-seikatsu-volume-11-chapter-ss.html)
-- [Gimai Seikatsu Volume 11 Kata Penutup](https://zerokaito.blogspot.com/2024/09/gimai-seikatsu-volume-11-kata-penutup.html)
-- [Gimai Seikatsu Volume 11 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/gimai-seikatsu-volume-11-epilog-bahasa.html)
-- [Gimai Seikatsu Volume 11 Chapter 9 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/gimai-seikatsu-volume-11-chapter-9.html)
-- [Roshidere Jilid 9 Bab 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/roshidere-jilid-9-bab-5-bahasa-indonesia.html)
+- [Itsudemo Jitaku ni Kaerareru Ore wa, Isekai de Gyoushounin o Hajimemashita Bahasa Indonesia Illustrations Volume 6](https://www.ruenovel.com/2024/09/itsudemo-jitku-ni-kaerareru-ore-wa-llustrations-vol6.html)
+- [Itsudemo Jitaku ni Kaerareru Ore wa, Isekai de Gyoushounin o Hajimemashita Bahasa Indonesia Illustrations Volume 5](https://www.ruenovel.com/2024/09/itsudemo-jitaku-ni-kaerareru-ore-wa-llustrations-vol5.html)
+- [Itsudemo Jitaku ni Kaerareru Ore wa, Isekai de Gyoushounin o Hajimemashita Bahasa Indonesia Illustrations Volume 4](https://www.ruenovel.com/2024/09/itsudemo-jitaku-ni-kaerareru-ore-wa-llustrations-vol4.html)
+- [Itsudemo Jitaku ni Kaerareru Ore wa, Isekai de Gyoushounin o Hajimemashita Bahasa Indonesia Illustrations Volume 3](https://www.ruenovel.com/2024/09/itsudemo-jitaku-ni-kaerareru-ore-wa-llustrations-vol3.html)
+- [Itsudemo Jitaku ni Kaerareru Ore wa, Isekai de Gyoushounin o Hajimemashita Bahasa Indonesia Illustrations Volume 2](https://www.ruenovel.com/2024/09/ itsudemo-jitaku-ni-kaerareru-ore-wa-llustrations-vol2.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
