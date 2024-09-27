@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Otonari no Tenshi-sama Jilid 9 Bab 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/otonari-no-tenshi-sama-jilid-9-bab-4.html)
 - [Itsudemo Jitaku ni Kaerareru Ore wa, Isekai de Gyoushounin o Hajimemashita Bahasa Indonesia Download](https://www.ruenovel.com/2024/09/novel-itsudemo-jitaku-ni-kaerareru-ore-download.html)
 - [Itsudemo Jitaku ni Kaerareru Ore wa, Isekai de Gyoushounin o Hajimemashita Bahasa Indonesia Illustrations Volume 6](https://www.ruenovel.com/2024/09/itsudemo-jitku-ni-kaerareru-ore-wa-llustrations-vol6.html)
 - [Itsudemo Jitaku ni Kaerareru Ore wa, Isekai de Gyoushounin o Hajimemashita Bahasa Indonesia Illustrations Volume 5](https://www.ruenovel.com/2024/09/itsudemo-jitaku-ni-kaerareru-ore-wa-llustrations-vol5.html)
 - [Itsudemo Jitaku ni Kaerareru Ore wa, Isekai de Gyoushounin o Hajimemashita Bahasa Indonesia Illustrations Volume 4](https://www.ruenovel.com/2024/09/itsudemo-jitaku-ni-kaerareru-ore-wa-llustrations-vol4.html)
-- [Itsudemo Jitaku ni Kaerareru Ore wa, Isekai de Gyoushounin o Hajimemashita Bahasa Indonesia Illustrations Volume 3](https://www.ruenovel.com/2024/09/itsudemo-jitaku-ni-kaerareru-ore-wa-llustrations-vol3.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
