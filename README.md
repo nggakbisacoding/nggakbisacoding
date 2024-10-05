@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Otonari no Tenshi-sama Jilid 9 Bab 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/10/otonari-no-tenshi-sama-jilid-9-bab-5.html)
 - [Roshidere Jilid 9 Bab 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/10/roshidere-jilid-9-bab-6-bahasa-indonesia.html)
 - [[LN] Anti-NTR Jilid 4 Bab 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/10/ln-anti-ntr-jilid-4-bab-2-bahasa.html)
 - [[LN] Saijou no Osewa Jilid 6 Bab 1 Bagian 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/ln-saijou-no-osewa-jilid-6-bab-1-bagian_29.html)
 - [Otonari no Tenshi-sama Jilid 9 Bab 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/otonari-no-tenshi-sama-jilid-9-bab-4.html)
-- [Itsudemo Jitaku ni Kaerareru Ore wa, Isekai de Gyoushounin o Hajimemashita Bahasa Indonesia Download](https://www.ruenovel.com/2024/09/novel-itsudemo-jitaku-ni-kaerareru-ore-download.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
