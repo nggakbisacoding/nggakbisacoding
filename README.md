@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [[LN] Anti-NTR Jilid 4 Bab 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/10/ln-anti-ntr-jilid-4-bab-3-bahasa.html)
 - [[LN] Saijou no Osewa Jilid 6 Bab 1 Bagian 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/10/ln-saijou-no-osewa-jilid-6-bab-1-bagian.html)
 - [Otonari no Tenshi-sama Jilid 9 Bab 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/10/otonari-no-tenshi-sama-jilid-9-bab-5.html)
 - [Roshidere Jilid 9 Bab 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/10/roshidere-jilid-9-bab-6-bahasa-indonesia.html)
 - [[LN] Anti-NTR Jilid 4 Bab 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/10/ln-anti-ntr-jilid-4-bab-2-bahasa.html)
-- [[LN] Saijou no Osewa Jilid 6 Bab 1 Bagian 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/09/ln-saijou-no-osewa-jilid-6-bab-1-bagian_29.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
