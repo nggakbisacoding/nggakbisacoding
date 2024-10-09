@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Roshidere Jilid 9 Bab 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/10/roshidere-jilid-9-bab-7-bahasa-indonesia.html)
 - [Mochiron, Isharyou Seikyuu Itashimasu! Bahasa Indonesia Manga](https://www.ruenovel.com/2024/10/manga-mochiron-isharyou-seikyuu.html)
 - [Koko wa Ore ni Makasete Saki ni Ike to Itte kara 10-nen ga Tattara Densetsu ni Natteita. Bahasa Indonesia Manga](https://www.ruenovel.com/2024/10/manga-koko-wa-ore-ni-makasete-saki-ni.html)
 - [Haikei… Koroshiya-san to Kekkon Shimashita Bahasa Indonesia Manga](https://www.ruenovel.com/2024/10/manga-haikei-koroshiya-san-to-kekkon.html)
 - [Arafoo Otoko no Isekai Tsuhan Seikatsu Bahasa Indonesia Manga](https://www.ruenovel.com/2024/10/manga-arafoo-otoko-no-isekai-tsuhan.html)
-- [Otonari no Tenshi-sama Jilid 9 Bab 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/10/otonari-no-tenshi-sama-jilid-9-bab-6.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
