@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [I Woke Up Piloting the Strongest Starship, so I Became a Space Mercenary Bahasa Indonesia Illustrations Volume 2](https://www.ruenovel.com/2024/10/i-woke-up-piloting-strongest-starship-illustrations-volume2.html)
+- [I Woke Up Piloting the Strongest Starship, so I Became a Space Mercenary Bahasa Indonesia Illustrations Volume 1](https://www.ruenovel.com/2024/10/i-woke-up-piloting-strongest-starship-illustrations-volume1.html)
 - [Roshidere Jilid 9 Bab 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/10/roshidere-jilid-9-bab-7-bahasa-indonesia.html)
 - [Mochiron, Isharyou Seikyuu Itashimasu! Bahasa Indonesia Manga](https://www.ruenovel.com/2024/10/manga-mochiron-isharyou-seikyuu.html)
 - [Koko wa Ore ni Makasete Saki ni Ike to Itte kara 10-nen ga Tattara Densetsu ni Natteita. Bahasa Indonesia Manga](https://www.ruenovel.com/2024/10/manga-koko-wa-ore-ni-makasete-saki-ni.html)
-- [Haikei… Koroshiya-san to Kekkon Shimashita Bahasa Indonesia Manga](https://www.ruenovel.com/2024/10/manga-haikei-koroshiya-san-to-kekkon.html)
-- [Arafoo Otoko no Isekai Tsuhan Seikatsu Bahasa Indonesia Manga](https://www.ruenovel.com/2024/10/manga-arafoo-otoko-no-isekai-tsuhan.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
