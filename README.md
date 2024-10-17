@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Otonari no Tenshi-sama Jilid 9 Bab 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/10/otonari-no-tenshi-sama-jilid-9-bab-7.html)
 - [Roshidere Jilid 9 Bab 8 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/10/roshidere-jilid-9-bab-8-bahasa-indonesia.html)
 - [I Woke Up Piloting the Strongest Starship, so I Became a Space Mercenary Bahasa Indonesia Download](https://www.ruenovel.com/2020/06/i-woke-up-piloting-strongest-starship-donwload.html)
 - [[LN] Anti-NTR Jilid 4 Bab 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/10/ln-anti-ntr-jilid-4-bab-4-bahasa.html)
 - [I Woke Up Piloting the Strongest Starship, so I Became a Space Mercenary Bahasa Indonesia Illustrations Volume 9](https://www.ruenovel.com/2024/10/i-woke-up-piloting-strongest-starship-illustrations-volume9.html)
-- [I Woke Up Piloting the Strongest Starship, so I Became a Space Mercenary Bahasa Indonesia Illustrations Volume 8](https://www.ruenovel.com/2024/10/i-woke-up-piloting-strongest-starship-illustrations-volume8.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
