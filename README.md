@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [[LN] Saijou no Osewa Jilid 6 Bab 2 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/10/ln-saijou-no-osewa-jilid-6-bab-2-bagian_20.html)
 - [Let’s Manage the Tower Bahasa Indonesia Manga](https://www.ruenovel.com/2024/10/manga-lets-manage-tower-bahasa.html)
 - [Koi Shita no de, Haishin Shite Mita Bahasa Indonesia](https://www.ruenovel.com/2024/10/manga-koi-shita-no-de-haishin-shite.html)
 - [Isekai de Kojiin wo Hiraitakedo, Nazeka Darehitori Sudatou to Shinai Ken Bahasa Indonesia Manga](https://www.ruenovel.com/2024/10/manga-isekai-de-kojiin-wo-hiraitakedo.html)
 - [Gimai Seikatsu Volume 12 Ilustrasi](https://zerokaito.blogspot.com/2024/10/gimai-seikatsu-volume-12-ilustrasi.html)
-- [Otonari no Tenshi-sama Jilid 9 Bab 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/10/otonari-no-tenshi-sama-jilid-9-bab-7.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
