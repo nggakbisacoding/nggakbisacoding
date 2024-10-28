@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [[LN] Anti-NTR Jilid 4 Bab SS Bahasa Indonesia](https://zerokaito.blogspot.com/2024/10/ln-anti-ntr-jilid-4-bab-ss-bahasa.html)
+- [[LN] Anti-NTR Jilid 4 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/10/ln-anti-ntr-jilid-4-epilog-bahasa.html)
+- [[LN] Anti-NTR Jilid 4 Bab 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/10/ln-anti-ntr-jilid-4-bab-6-bahasa.html)
 - [Kore wa Akumade, Mamagoto Volume 1 Bab 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/10/kore-wa-akumade-mamagoto-volume-1-bab-4.html)
 - [Yuusha Party wo Oida Sareta Kiyou Binbou Bahasa Indonesia Manga](https://www.ruenovel.com/2024/10/manga-yuusha-party-wo-oida-sareta-kiyou.html)
-- [Pension Life Vampire Manga](https://www.ruenovel.com/2024/10/manga-pension-life-vampire.html)
-- [Ore dake Level ga Agaru Sekai de Akutoku Ryoushu ni Natteita Bahasa Indonesia Manga](https://www.ruenovel.com/2024/10/manga-ore-dake-level-ga-agaru-sekai-de.html)
-- [[LN] Saijou no Osewa Jilid 6 Bab 3 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/10/ln-saijou-no-osewa-jilid-6-bab-3-bagian.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
