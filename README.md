@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
-- [[LN] Anti-NTR Jilid 4 Bab SS Bahasa Indonesia](https://zerokaito.blogspot.com/2024/10/ln-anti-ntr-jilid-4-bab-ss-bahasa.html)
-- [[LN] Anti-NTR Jilid 4 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/10/ln-anti-ntr-jilid-4-epilog-bahasa.html)
-- [[LN] Anti-NTR Jilid 4 Bab 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/10/ln-anti-ntr-jilid-4-bab-6-bahasa.html)
-- [Kore wa Akumade, Mamagoto Volume 1 Bab 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/10/kore-wa-akumade-mamagoto-volume-1-bab-4.html)
-- [Yuusha Party wo Oida Sareta Kiyou Binbou Bahasa Indonesia Manga](https://www.ruenovel.com/2024/10/manga-yuusha-party-wo-oida-sareta-kiyou.html)
+- [Otonari no Tenshi-sama Jilid 9 SS 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/10/otonari-no-tenshi-sama-jilid-9-ss-6.html)
+- [Otonari no Tenshi-sama Jilid 9 SS 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/10/otonari-no-tenshi-sama-jilid-9-ss-5.html)
+- [Otonari no Tenshi-sama Jilid 9 SS 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/10/otonari-no-tenshi-sama-jilid-9-ss-4.html)
+- [Otonari no Tenshi-sama Jilid 9 SS 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/10/otonari-no-tenshi-sama-jilid-9-ss-3.html)
+- [Otonari no Tenshi-sama Jilid 9 SS 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/10/otonari-no-tenshi-sama-jilid-9-ss-2.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
