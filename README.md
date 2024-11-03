@@ -71,10 +71,10 @@
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
 - [[LN] Saijou no Osewa Jilid 6 Bab 3 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/11/ln-saijou-no-osewa-jilid-6-bab-3-bagian.html)
-- [Hanayome wo Ryakudatsu Jilid 2 Ilustrasi](https://zerokaito.blogspot.com/2024/11/hanayome-wo-ryakudatsu-jilid-2-ilustrasi.html)
 - [Otonari no Tenshi-sama Jilid 9 SS 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/10/otonari-no-tenshi-sama-jilid-9-ss-6.html)
 - [Otonari no Tenshi-sama Jilid 9 SS 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/10/otonari-no-tenshi-sama-jilid-9-ss-5.html)
 - [Otonari no Tenshi-sama Jilid 9 SS 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/10/otonari-no-tenshi-sama-jilid-9-ss-4.html)
+- [Otonari no Tenshi-sama Jilid 9 SS 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/10/otonari-no-tenshi-sama-jilid-9-ss-3.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
