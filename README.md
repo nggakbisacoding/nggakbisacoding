@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Gimai Seikatsu Volume 12 Chapter 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/11/gimai-seikatsu-volume-12-chapter-2.html)
 - [[LN] Saijou no Osewa Jilid 6 Bab 3 Bagian 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/11/ln-saijou-no-osewa-jilid-6-bab-3-bagian_10.html)
 - [Hanayome wo Ryakudatsu Jilid 2 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/11/hanayome-wo-ryakudatsu-jilid-2-prolog.html)
 - [Hanayome wo Ryakudatsu Jilid 2 Ilustrasi](https://zerokaito.blogspot.com/2024/11/hanayome-wo-ryakudatsu-jilid-2-ilustrasi_7.html)
 - [Gimai Seikatsu Volume 12 Chapter 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/11/gimai-seikatsu-volume-12-chapter-1.html)
-- [[LN] Saijou no Osewa Jilid 6 Bab 3 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/11/ln-saijou-no-osewa-jilid-6-bab-3-bagian.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
