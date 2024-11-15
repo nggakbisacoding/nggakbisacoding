@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
-- [Hanayome wo Ryakudatsu Jilid 2 Bab 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/11/hanayome-wo-ryakudatsu-jilid-2-bab-1.html)
-- [Gimai Seikatsu Volume 12 Chapter 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/11/gimai-seikatsu-volume-12-chapter-2.html)
-- [[LN] Saijou no Osewa Jilid 6 Bab 3 Bagian 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/11/ln-saijou-no-osewa-jilid-6-bab-3-bagian_10.html)
-- [Hanayome wo Ryakudatsu Jilid 2 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/11/hanayome-wo-ryakudatsu-jilid-2-prolog.html)
-- [Hanayome wo Ryakudatsu Jilid 2 Ilustrasi](https://zerokaito.blogspot.com/2024/11/hanayome-wo-ryakudatsu-jilid-2-ilustrasi_7.html)
+- [Nito no Taidana Isekai Shoukougun Bahasa Indonesia Manga](https://www.ruenovel.com/2024/11/manga-nito-no-taidana-isekai-shoukougun.html)
+- [Lv2 kara Cheat datta Moto Yuusha Kouho no Mattari Isekai Life Bahasa Indonesia Manga](https://www.ruenovel.com/2024/11/manga-lv2-kara-cheat-datta-moto-yuusha.html)
+- [Lonely Attack on the Different World Bahasa Indonesia Manga](https://www.ruenovel.com/2024/05/manga-lonely-attack-on-different-world.html)
+- [Kenja no Mago Bahasa Indonesia Manga](https://www.ruenovel.com/2024/11/manga-kenja-no-mago-bahasa-indonesia.html)
+- [Bocchi the Rock! Bahasa Indonesia Manga](https://www.ruenovel.com/2024/11/manga-bocchi-rock-bahasa-indonesia.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
