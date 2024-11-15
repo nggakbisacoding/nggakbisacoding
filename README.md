@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Relaxed VRMMO Log Bahasa Indonesia Manga](https://www.ruenovel.com/2024/11/manga-relaxed-vrmmo-log-bahasa.html)
 - [Nito no Taidana Isekai Shoukougun Bahasa Indonesia Manga](https://www.ruenovel.com/2024/11/manga-nito-no-taidana-isekai-shoukougun.html)
 - [Lv2 kara Cheat datta Moto Yuusha Kouho no Mattari Isekai Life Bahasa Indonesia Manga](https://www.ruenovel.com/2024/11/manga-lv2-kara-cheat-datta-moto-yuusha.html)
 - [Lonely Attack on the Different World Bahasa Indonesia Manga](https://www.ruenovel.com/2024/05/manga-lonely-attack-on-different-world.html)
 - [Kenja no Mago Bahasa Indonesia Manga](https://www.ruenovel.com/2024/11/manga-kenja-no-mago-bahasa-indonesia.html)
-- [Bocchi the Rock! Bahasa Indonesia Manga](https://www.ruenovel.com/2024/11/manga-bocchi-rock-bahasa-indonesia.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
