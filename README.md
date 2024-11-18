@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Gimai Seikatsu Volume 12 Chapter 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/11/gimai-seikatsu-volume-12-chapter-3.html)
 - [[LN] Saijou no Osewa Jilid 6 Bab 4 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/11/ln-saijou-no-osewa-jilid-6-bab-4-bagian.html)
 - [Relaxed VRMMO Log Bahasa Indonesia Manga](https://www.ruenovel.com/2024/11/manga-relaxed-vrmmo-log-bahasa.html)
 - [Nito no Taidana Isekai Shoukougun Bahasa Indonesia Manga](https://www.ruenovel.com/2024/11/manga-nito-no-taidana-isekai-shoukougun.html)
 - [Lv2 kara Cheat datta Moto Yuusha Kouho no Mattari Isekai Life Bahasa Indonesia Manga](https://www.ruenovel.com/2024/11/manga-lv2-kara-cheat-datta-moto-yuusha.html)
-- [Lonely Attack on the Different World Bahasa Indonesia Manga](https://www.ruenovel.com/2024/05/manga-lonely-attack-on-different-world.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
