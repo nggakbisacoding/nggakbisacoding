@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [[LN] Saijou no Osewa Jilid 6 Bab 4 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/11/ln-saijou-no-osewa-jilid-6-bab-4-bagian_23.html)
 - [Hanayome wo Ryakudatsu Jilid 2 Selingan 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/11/hanayome-wo-ryakudatsu-jilid-2-selingan.html)
 - [Tensei Kizoku, Kantei Skill de Nariagaru Bahasa Indonesia Manga](https://www.ruenovel.com/2024/08/manga-tensei-kizoku-kantei-skill-de.html)
 - [Shoukan Sareta Kenja wa Isekai wo Iku Bahasa Indonesia Manga](https://www.ruenovel.com/2024/11/manga-shoukan-sareta-kenja-wa-isekai-wo.html)
 - [Gimai Seikatsu Volume 12 Chapter 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/11/gimai-seikatsu-volume-12-chapter-3.html)
-- [[LN] Saijou no Osewa Jilid 6 Bab 4 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/11/ln-saijou-no-osewa-jilid-6-bab-4-bagian.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
