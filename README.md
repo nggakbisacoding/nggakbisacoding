@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [[LN] Saijou no Osewa Jilid 6 Bab 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/12/ln-saijou-no-osewa-jilid-6-bab-5-bahasa.html)
 - [Roshidere Jilid 9.5 Chapter 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/11/roshidere-jilid-95-chapter-1.html)
 - [Roshidere Jilid 9.5 Ilustrasi](https://zerokaito.blogspot.com/2024/11/roshidere-jilid-95-ilustrasi.html)
 - [Hanayome wo Ryakudatsu Jilid 2 Selingan 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/11/hanayome-wo-ryakudatsu-jilid-2-selingan_28.html)
 - [Otonari no Tenshi-sama Jilid 10 Ilustrasi](https://zerokaito.blogspot.com/2024/11/otonari-no-tenshi-sama-jilid-10.html)
-- [Gimai Seikatsu Volume 12 Chapter 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/11/gimai-seikatsu-volume-12-chapter-4.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
