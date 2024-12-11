@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Hanayome wo Ryakudatsu Jilid 2 Selingan 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/12/hanayome-wo-ryakudatsu-jilid-2-selingan.html)
 - [Yamada-kun to Lv999 no Koi wo Suru Bahasa Indonesia Manga](https://www.ruenovel.com/2024/12/manga-yamada-kun-to-lv999-no-koi-wo.html)
 - [Tatoeba Last Dungeon Mae no Mura no Shounen ga Joban no Machi de Kurasu Youna Monogatari Bahasa Indonesia Manga](https://www.ruenovel.com/2024/12/manga-tatoeba-last-dungeon-mae-no-mura.html)
 - [Kaoru Hana wa Rin to Saku Bahasa Indonesia Manga](https://www.ruenovel.com/2024/12/manga-kaoru-hana-wa-rin-to-saku-bahasa.html)
 - [Isekai Ojisan Bahasa Indonesia Manga](https://www.ruenovel.com/2024/12/manga-isekai-ojisan-bahasa-indonesia.html)
-- [Dorei Shounin shika Sentakushi ga nai desu yo? Bahasa Indonesia Manga](https://www.ruenovel.com/2024/05/manga-dorei-shounin-shika-sentakushi-ga.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
