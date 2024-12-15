@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [[LN] Saijou no Osewa Jilid 7 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/12/ln-saijou-no-osewa-jilid-7-prolog.html)
+- [[LN] Saijou no Osewa Jilid 7 Ilustrasi](https://zerokaito.blogspot.com/2024/12/ln-saijou-no-osewa-jilid-7-ilustrasi.html)
 - [Roshidere Jilid 9.5 Chapter 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/12/roshidere-jilid-95-chapter-5-bahasa.html)
 - [Roshidere Jilid 9.5 Chapter 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/12/roshidere-jilid-95-chapter-4-bahasa.html)
 - [Hanayome wo Ryakudatsu Jilid 2 Selingan 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/12/hanayome-wo-ryakudatsu-jilid-2-selingan.html)
-- [Yamada-kun to Lv999 no Koi wo Suru Bahasa Indonesia Manga](https://www.ruenovel.com/2024/12/manga-yamada-kun-to-lv999-no-koi-wo.html)
-- [Tatoeba Last Dungeon Mae no Mura no Shounen ga Joban no Machi de Kurasu Youna Monogatari Bahasa Indonesia Manga](https://www.ruenovel.com/2024/12/manga-tatoeba-last-dungeon-mae-no-mura.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
