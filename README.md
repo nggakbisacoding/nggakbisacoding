@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Majo no Kaigashuu Bahasa Indonesia Manga](https://www.ruenovel.com/2024/12/manga-majo-no-kaigashuu-bahasa-indonesia.html)
 - [Moto Ansatsusha, Kizoku no Reijou Vol 1 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/12/moto-ansatsusha-kizoku-no-reijou-vol-1.html)
 - [Moto Ansatsusha, Kizoku no Reijou ni Narimashita Volume 1 Ilustrasi](https://zerokaito.blogspot.com/2024/12/moto-ansatsusha-kizoku-no-reijou-ni.html)
 - [Gimai Seikatsu Volume 12 Chapter SS Bahasa Indonesia](https://zerokaito.blogspot.com/2024/12/gimai-seikatsu-volume-12-chapter-ss.html)
 - [Gimai Seikatsu Volume 12 Kata Penutup](https://zerokaito.blogspot.com/2024/12/gimai-seikatsu-volume-12-kata-penutup.html)
-- [Gimai Seikatsu Volume 12 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/12/gimai-seikatsu-volume-12-epilog-bahasa.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
