@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [To Be a Power in the Shadows! Bahasa Indonesia Manga](https://www.ruenovel.com/2024/12/mangato-be-power-in-shadows-bahasa.html)
+- [Tensei Ouji wa Renkinjutsushi to Nari Koukoku suru Bahasa Indonesia Manga](https://www.ruenovel.com/2024/12/manga-tensei-ouji-wa-renkinjutsushi-to.html)
+- [Saijo no Osewa Bahasa Indonesia Manga](https://www.ruenovel.com/2024/12/manga-saijo-no-osewa-bahasa-indonesia.html)
+- [Hanayome wo Ryakudatsu Jilid 2 Bab 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/12/hanayome-wo-ryakudatsu-jilid-2-bab-3.html)
 - [Ore no Zense no Chishiki de Teihenshoku Tamer ga Joukyuushoku ni Natte Shimaisou na Ken Bahasa Indonesia Manga](https://www.ruenovel.com/2024/12/manga-ore-no-zense-no-chishiki-de.html)
-- [Nageki no Bourei wa Intai Shitai Bahasa Indonesia Manga](https://www.ruenovel.com/2024/12/manga-nageki-no-bourei-wa-intai-shitai.html)
-- [Majo no Kaigashuu Bahasa Indonesia Manga](https://www.ruenovel.com/2024/12/manga-majo-no-kaigashuu-bahasa-indonesia.html)
-- [Moto Ansatsusha, Kizoku no Reijou Vol 1 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/12/moto-ansatsusha-kizoku-no-reijou-vol-1.html)
-- [Moto Ansatsusha, Kizoku no Reijou ni Narimashita Volume 1 Ilustrasi](https://zerokaito.blogspot.com/2024/12/moto-ansatsusha-kizoku-no-reijou-ni.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
