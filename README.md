@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Roshidere Jilid 9.5 Chapter 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/12/roshidere-jilid-95-chapter-7-bahasa.html)
+- [Roshidere Jilid 9.5 Chapter 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/12/roshidere-jilid-95-chapter-6-bahasa.html)
 - [Bad-end go no Heroine Vol 1 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/12/bad-end-go-no-heroine-vol-1-prolog.html)
 - [Bad-end go no Heroine Volume 1 Ilustrasi](https://zerokaito.blogspot.com/2024/12/bad-end-go-no-heroine-volume-1-ilustrasi.html)
 - [Yumemiru Danshi wa Genjitsushugisha Bahasa Indonesia Manga](https://www.ruenovel.com/2024/12/manga-yumemiru-danshi-wa.html)
-- [To Be a Power in the Shadows! Bahasa Indonesia Manga](https://www.ruenovel.com/2024/12/mangato-be-power-in-shadows-bahasa.html)
-- [Tensei Ouji wa Renkinjutsushi to Nari Koukoku suru Bahasa Indonesia Manga](https://www.ruenovel.com/2024/12/manga-tensei-ouji-wa-renkinjutsushi-to.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
