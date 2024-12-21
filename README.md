@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [[LN] Saijou no Osewa Jilid 7 Bab 1 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/12/ln-saijou-no-osewa-jilid-7-bab-1-bagian.html)
 - [Otonari no Tenshi-sama Jilid 10 Bab 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/12/otonari-no-tenshi-sama-jilid-10-bab-1.html)
 - [Roshidere Jilid 9.5 Chapter 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/12/roshidere-jilid-95-chapter-7-bahasa.html)
 - [Roshidere Jilid 9.5 Chapter 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/12/roshidere-jilid-95-chapter-6-bahasa.html)
 - [Bad-end go no Heroine Vol 1 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2024/12/bad-end-go-no-heroine-vol-1-prolog.html)
-- [Bad-end go no Heroine Volume 1 Ilustrasi](https://zerokaito.blogspot.com/2024/12/bad-end-go-no-heroine-volume-1-ilustrasi.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
