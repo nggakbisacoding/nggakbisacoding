@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Roshidere Jilid 9.5 Chapter 9 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/12/roshidere-jilid-95-chapter-9-bahasa.html)
+- [Roshidere Jilid 9.5 Chapter 8 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/12/roshidere-jilid-95-chapter-8-bahasa.html)
 - [Bad-end go no Heroine Vol 1 Chapter 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/12/bad-end-go-no-heroine-vol-1-chapter-1.html)
 - [Otonari no Tenshi-sama Jilid 10 Bab 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/12/otonari-no-tenshi-sama-jilid-10-bab-2.html)
 - [Hanayome wo Ryakudatsu Jilid 2 Bab 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/12/hanayome-wo-ryakudatsu-jilid-2-bab-4.html)
-- [Moto Ansatsusha, Kizoku no Reijou Vol 1 Bab 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/12/moto-ansatsusha-kizoku-no-reijou-vol-1_23.html)
-- [[LN] Saijou no Osewa Jilid 7 Bab 1 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/12/ln-saijou-no-osewa-jilid-7-bab-1-bagian.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
