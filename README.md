@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Majo no Tabitabi Bahasa Indonesia Download](https://www.ruenovel.com/2020/04/majo-no-tabitabi-bahasa-indonesia.html)
+- [Itsudemo Jitaku ni Kaerareru Ore wa, Isekai de Gyoushounin o Hajimemashita Bahasa Indonesia Download](https://www.ruenovel.com/2024/09/novel-itsudemo-jitaku-ni-kaerareru-ore-download.html)
 - [Roshidere Jilid 9.5 Chapter 9 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/12/roshidere-jilid-95-chapter-9-bahasa.html)
 - [Roshidere Jilid 9.5 Chapter 8 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/12/roshidere-jilid-95-chapter-8-bahasa.html)
 - [Bad-end go no Heroine Vol 1 Chapter 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/12/bad-end-go-no-heroine-vol-1-chapter-1.html)
-- [Otonari no Tenshi-sama Jilid 10 Bab 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/12/otonari-no-tenshi-sama-jilid-10-bab-2.html)
-- [Hanayome wo Ryakudatsu Jilid 2 Bab 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/12/hanayome-wo-ryakudatsu-jilid-2-bab-4.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
