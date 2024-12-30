@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Moto Ansatsusha, Kizoku no Reijou Vol 1 Bab 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/12/moto-ansatsusha-kizoku-no-reijou-vol-1_31.html)
 - [[LN] Saijou no Osewa Jilid 7 Bab 1 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/12/ln-saijou-no-osewa-jilid-7-bab-1-bagian_29.html)
 - [Majo no Tabitabi Bahasa Indonesia Download](https://www.ruenovel.com/2020/04/majo-no-tabitabi-bahasa-indonesia.html)
 - [Itsudemo Jitaku ni Kaerareru Ore wa, Isekai de Gyoushounin o Hajimemashita Bahasa Indonesia Download](https://www.ruenovel.com/2024/09/novel-itsudemo-jitaku-ni-kaerareru-ore-download.html)
 - [Roshidere Jilid 9.5 Chapter 9 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/12/roshidere-jilid-95-chapter-9-bahasa.html)
-- [Roshidere Jilid 9.5 Chapter 8 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/12/roshidere-jilid-95-chapter-8-bahasa.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
