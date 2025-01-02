@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Bad-end go no Heroine Vol 1 Chapter 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/01/bad-end-go-no-heroine-vol-1-chapter-2.html)
 - [Hanayome wo Ryakudatsu Jilid 2 Selingan 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/01/hanayome-wo-ryakudatsu-jilid-2-selingan.html)
 - [Moto Ansatsusha, Kizoku no Reijou Vol 1 Bab 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/12/moto-ansatsusha-kizoku-no-reijou-vol-1_31.html)
 - [[LN] Saijou no Osewa Jilid 7 Bab 1 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2024/12/ln-saijou-no-osewa-jilid-7-bab-1-bagian_29.html)
 - [Majo no Tabitabi Bahasa Indonesia Download](https://www.ruenovel.com/2020/04/majo-no-tabitabi-bahasa-indonesia.html)
-- [Itsudemo Jitaku ni Kaerareru Ore wa, Isekai de Gyoushounin o Hajimemashita Bahasa Indonesia Download](https://www.ruenovel.com/2024/09/novel-itsudemo-jitaku-ni-kaerareru-ore-download.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
