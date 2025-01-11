@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [[LN] Saijou no Osewa Jilid 7 Bab 2 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/01/ln-saijou-no-osewa-jilid-7-bab-2-bagian.html)
 - [Roshidere Jilid 9.5 Chapter 13 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/01/roshidere-jilid-95-chapter-13-bahasa.html)
 - [Roshidere Jilid 9.5 Chapter 12 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/01/roshidere-jilid-95-chapter-12-bahasa.html)
 - [Bad-end go no Heroine Vol 1 Chapter 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/01/bad-end-go-no-heroine-vol-1-chapter-3.html)
 - [Boukensha ni Naritai to Miyako ni Deteitta Musume ga S Rank ni Natteta Bahasa Indonesia](https://www.ruenovel.com/2025/01/ln-boukensha-ni-naritai-to-miyako-ni.html)
-- [Hanayome wo Ryakudatsu Jilid 2 Bab 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/01/hanayome-wo-ryakudatsu-jilid-2-bab-5.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
