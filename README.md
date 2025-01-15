@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Hanayome wo Ryakudatsu Jilid 2 Selingan 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/01/hanayome-wo-ryakudatsu-jilid-2-selingan_15.html)
+- [Moto Ansatsusha, Kizoku no Reijou Vol 1 Bab 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/01/moto-ansatsusha-kizoku-no-reijou-vol-1_15.html)
 - [Boukensha ni Naritai to Miyako ni Deteitta Musume ga S Rank ni Natteta Bahasa Indonesia Download](https://www.ruenovel.com/2025/01/boukensha-ni-naritai-to-miyako-ni.html)
 - [Boukensha ni Naritai to Miyako ni Deteitta Musume ga S Rank ni Natteta Bahasa   Indonesia Illustrations Volume 9](https://www.ruenovel.com/2025/01/boukensha-ni-naritai-to-miyako-illustrations-vol9.html)
 - [Boukensha ni Naritai to Miyako ni Deteitta Musume ga S Rank ni Natteta Bahasa   Indonesia Illustrations Volume 8](https://www.ruenovel.com/2025/01/boukensha-ni-naritai-to-miyako-illustrations-vol8.html)
-- [Boukensha ni Naritai to Miyako ni Deteitta Musume ga S Rank ni Natteta Bahasa   Indonesia Illustrations Volume 7](https://www.ruenovel.com/2025/01/boukensha-ni-naritai-to-miyako-illustrations-vol17.html)
-- [Boukensha ni Naritai to Miyako ni Deteitta Musume ga S Rank ni Natteta Bahasa Indonesia Illustrations Volume 6](https://www.ruenovel.com/2025/01/boukensha-ni-naritai-to-miyako-illustrations-vol6.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
