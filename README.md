@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Kanojo ni Uwakisareteita Ore ga, Koakuma na Kouhai ni Natsukareteimasu Bahasa Indonesia Manga](https://www.ruenovel.com/2025/01/manga-kanojo-ni-uwakisareteita-ore-ga.html)
+- [Combatants Will Be Dispatched Bahasa Indonesia Manga](https://www.ruenovel.com/2024/12/manga-combatants-will-be-dispatched.html)
+- [Akuyaku Reijou no Naka no Hito Bahasa Indonesia Manga](https://www.ruenovel.com/2025/01/manga-akuyaku-reijou-no-naka-no-hito.html)
 - [100-nin no Eiyuu wo Sodateta Saikyou Yogensha wa, Boukensha ni Nattemo Sekaijuu no Deshi kara Shitawaretemasu Bahasa Indonesia Manga](https://www.ruenovel.com/2025/01/manga-100-nin-no-eiyuu-wo-sodateta.html)
 - [6-sai no Kenja wa Hikage no Michi wo Ayumitai Bahasa Indonesia Manga](https://www.ruenovel.com/2025/01/manga-6-sai-no-kenja-wa-hikage-no-michi.html)
-- [Roshidere Jilid 9.5 Chapter 17 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/01/roshidere-jilid-95-chapter-17-bahasa.html)
-- [Roshidere Jilid 9.5 Chapter 16 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/01/roshidere-jilid-95-chapter-16-bahasa.html)
-- [Roshidere Jilid 9.5 Chapter 15 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/01/roshidere-jilid-95-chapter-15-bahasa.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
