@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [100-nin no Eiyuu wo Sodateta Saikyou Yogensha wa, Boukensha ni Nattemo Sekaijuu no Deshi kara Shitawaretemasu Bahasa Indonesia Manga](https://www.ruenovel.com/2025/01/manga-100-nin-no-eiyuu-wo-sodateta.html)
+- [6-sai no Kenja wa Hikage no Michi wo Ayumitai Bahasa Indonesia Manga](https://www.ruenovel.com/2025/01/manga-6-sai-no-kenja-wa-hikage-no-michi.html)
 - [Roshidere Jilid 9.5 Chapter 17 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/01/roshidere-jilid-95-chapter-17-bahasa.html)
 - [Roshidere Jilid 9.5 Chapter 16 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/01/roshidere-jilid-95-chapter-16-bahasa.html)
 - [Roshidere Jilid 9.5 Chapter 15 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/01/roshidere-jilid-95-chapter-15-bahasa.html)
-- [Roshidere Jilid 9.5 Chapter 14 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/01/roshidere-jilid-95-chapter-14-bahasa.html)
-- [Bad-end go no Heroine Vol 1 Chapter 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/01/bad-end-go-no-heroine-vol-1-chapter-4.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
