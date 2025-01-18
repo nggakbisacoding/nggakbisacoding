@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
-- [Manga Makentsukai no Moto Shounenhei wa, Moto Tekikanbu no Oneesan to Issho ni Ikitai Bahasa Indonesia](https://www.ruenovel.com/2025/01/manga-makentsukai-no-moto-shounenhei-wa.html)
+- [Shuumatsu no Hanayome-sama Bahasa Indonesia Manga](https://www.ruenovel.com/2025/01/manga-shuumatsu-no-hanayome-sama-bahasa.html)
+- [Shijou Saikyou no Mahou Kenshi, F-Rank Boukensha ni Tensei suru Manga](https://www.ruenovel.com/2025/01/manga-shijou-saikyou-no-mahou-kenshi-f.html)
+- [Makentsukai no Moto Shounenhei wa, Moto Tekikanbu no Oneesan to Issho ni Ikitai Bahasa Indonesia Manga](https://www.ruenovel.com/2025/01/manga-makentsukai-no-moto-shounenhei-wa.html)
 - [Mahou Gakuen no Daizai Majutsushi Bahasa Indonesia](https://www.ruenovel.com/2025/01/manga-mahou-gakuen-no-daizai-majutsush.html)
 - [Koi wa Futago de Warikirenai Bahasa Indonesia  Manga](https://www.ruenovel.com/2025/01/manga-koi-wa-futago-de-warikirenai.html)
-- [Otonari no Tenshi-sama Jilid 10 Bab 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/01/otonari-no-tenshi-sama-jilid-10-bab-5.html)
-- [Kanojo ni Uwakisareteita Ore ga, Koakuma na Kouhai ni Natsukareteimasu Bahasa Indonesia Manga](https://www.ruenovel.com/2025/01/manga-kanojo-ni-uwakisareteita-ore-ga.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
