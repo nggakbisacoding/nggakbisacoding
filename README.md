@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Moto Ansatsusha, Kizoku no Reijou Vol 1 Bab 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/01/moto-ansatsusha-kizoku-no-reijou-vol-1_21.html)
 - [Otonari no Tenshi-sama Jilid 10 Bab 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/01/otonari-no-tenshi-sama-jilid-10-bab-6.html)
 - [[LN] Saijou no Osewa Jilid 7 Bab 2 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/01/ln-saijou-no-osewa-jilid-7-bab-2-bagian_19.html)
 - [Shuumatsu no Hanayome-sama Bahasa Indonesia Manga](https://www.ruenovel.com/2025/01/manga-shuumatsu-no-hanayome-sama-bahasa.html)
 - [Shijou Saikyou no Mahou Kenshi, F-Rank Boukensha ni Tensei suru Manga](https://www.ruenovel.com/2025/01/manga-shijou-saikyou-no-mahou-kenshi-f.html)
-- [Makentsukai no Moto Shounenhei wa, Moto Tekikanbu no Oneesan to Issho ni Ikitai Bahasa Indonesia Manga](https://www.ruenovel.com/2025/01/manga-makentsukai-no-moto-shounenhei-wa.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
