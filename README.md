@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Hanayome wo Ryakudatsu Jilid 2 Bab 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/01/hanayome-wo-ryakudatsu-jilid-2-bab-6.html)
 - [Otonari no Tenshi-sama Jilid 10 Bab 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/01/otonari-no-tenshi-sama-jilid-10-bab-7.html)
 - [Moto Ansatsusha, Kizoku no Reijou Vol 1 Bab 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/01/moto-ansatsusha-kizoku-no-reijou-vol-1_28.html)
 - [[LN] Saijou no Osewa Jilid 7 Bab 2 Bagian 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/01/ln-saijou-no-osewa-jilid-7-bab-2-bagian_26.html)
 - [Roshidere Jilid 9.5 Chapter 19 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/01/roshidere-jilid-95-chapter-19-bahasa.html)
-- [Roshidere Jilid 9.5 Chapter 18 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/01/roshidere-jilid-95-chapter-18-bahasa.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
