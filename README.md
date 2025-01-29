@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Fuguushoku to Baka ni Saremashita ga, Jissai wa Sorehodo Waruku Arimasen Bahasa Indonesia Manga](https://www.ruenovel.com/2025/01/manga-fuguushoku-to-baka-ni-saremashita.html)
+- [Danshi Koukousei wo Yashinaitai Onee-san no Hanashi. Bahasa Indonesia Manga](https://www.ruenovel.com/2025/01/manga-danshi-koukousei-wo-yashinaitai.html)
+- [Amagami-san Chi no Enmusubi Bahasa Indonesia Manga](https://www.ruenovel.com/2024/03/manga-amagami-san-chi-no-enmusubi.html)
 - [Hanayome wo Ryakudatsu Jilid 2 Bab 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/01/hanayome-wo-ryakudatsu-jilid-2-bab-6.html)
 - [Otonari no Tenshi-sama Jilid 10 Bab 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/01/otonari-no-tenshi-sama-jilid-10-bab-7.html)
-- [Moto Ansatsusha, Kizoku no Reijou Vol 1 Bab 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/01/moto-ansatsusha-kizoku-no-reijou-vol-1_28.html)
-- [[LN] Saijou no Osewa Jilid 7 Bab 2 Bagian 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/01/ln-saijou-no-osewa-jilid-7-bab-2-bagian_26.html)
-- [Roshidere Jilid 9.5 Chapter 19 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/01/roshidere-jilid-95-chapter-19-bahasa.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
