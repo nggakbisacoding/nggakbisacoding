@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
-- [Fuguushoku to Baka ni Saremashita ga, Jissai wa Sorehodo Waruku Arimasen Bahasa Indonesia Manga](https://www.ruenovel.com/2025/01/manga-fuguushoku-to-baka-ni-saremashita.html)
-- [Danshi Koukousei wo Yashinaitai Onee-san no Hanashi. Bahasa Indonesia Manga](https://www.ruenovel.com/2025/01/manga-danshi-koukousei-wo-yashinaitai.html)
-- [Amagami-san Chi no Enmusubi Bahasa Indonesia Manga](https://www.ruenovel.com/2024/03/manga-amagami-san-chi-no-enmusubi.html)
-- [Hanayome wo Ryakudatsu Jilid 2 Bab 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/01/hanayome-wo-ryakudatsu-jilid-2-bab-6.html)
-- [Otonari no Tenshi-sama Jilid 10 Bab 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/01/otonari-no-tenshi-sama-jilid-10-bab-7.html)
+- [Nido Tensei Shita Shounen wa S Rank Boukensha Toshite Heion ni Sugosu Bahasa Indonesia Manga](https://www.ruenovel.com/2024/03/manga-nido-tensei-shita-shounen-wa-s.html)
+- [Maou Gakuen no Hangyakusha Bahasa Indonesia Manga](https://www.ruenovel.com/2023/11/manga-maou-gakuen-no-hangyakusha.html)
+- [I was a Sword when I Reincarnated! Bahasa Indonesia Manga](https://www.ruenovel.com/2025/01/manga-i-was-sword-when-i-reincarnated.html)
+- [Gyaru Gamer Homeraretai Bahasa Indonesia Manga](https://www.ruenovel.com/2025/01/manga-gyaru-gamer-homeraretai-bahasa.html)
+- [Fukushuu no Kyoukasho Bahasa Indonesia  Manga](https://www.ruenovel.com/2025/01/manga-fukushuu-no-kyoukasho-bahasa.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
