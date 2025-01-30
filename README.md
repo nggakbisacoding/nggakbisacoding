@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Rettou Hito no Maken Tsukai Bahasa Indonesia Manga](https://www.ruenovel.com/2025/01/manga-rettou-hito-no-maken-tsukai.html)
+- [Maou Gakuen no Hangyakusha Bahasa Indonesia Manga](https://www.ruenovel.com/2025/01/maou-gakuen-no-hangyakusha-bahasa.html)
 - [Bad-end go no Heroine Vol 1 Chapter 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/01/bad-end-go-no-heroine-vol-1-chapter-6.html)
 - [Nido Tensei Shita Shounen wa S Rank Boukensha Toshite Heion ni Sugosu Bahasa Indonesia Manga](https://www.ruenovel.com/2024/03/manga-nido-tensei-shita-shounen-wa-s.html)
-- [Maou Gakuen no Hangyakusha Bahasa Indonesia Manga](https://www.ruenovel.com/2023/11/manga-maou-gakuen-no-hangyakusha.html)
 - [I was a Sword when I Reincarnated! Bahasa Indonesia Manga](https://www.ruenovel.com/2025/01/manga-i-was-sword-when-i-reincarnated.html)
-- [Gyaru Gamer Homeraretai Bahasa Indonesia Manga](https://www.ruenovel.com/2025/01/manga-gyaru-gamer-homeraretai-bahasa.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
