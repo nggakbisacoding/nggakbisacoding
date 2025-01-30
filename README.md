@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Roshidere Jilid 9.5 Chapter 21 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/01/roshidere-jilid-95-chapter-21-bahasa.html)
+- [Roshidere Jilid 9.5 Chapter 20 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/01/roshidere-jilid-95-chapter-20-bahasa.html)
 - [Tsuihou sareta Tensei Juukishi wa Game Chishiki de Musou suru Bahasa Indonesia Manga](https://www.ruenovel.com/2024/05/manga-tsuihou-sareta-tensei-juukishi-wa.html)
 - [The Best Assassin, Incarnated into a Different World’s Aristocrat Bahasa Indonesia Manga](https://www.ruenovel.com/2025/01/mangav-best-assassin-incarnated-into.html)
 - [Rettou Hito no Maken Tsukai Bahasa Indonesia Manga](https://www.ruenovel.com/2025/01/manga-rettou-hito-no-maken-tsukai.html)
-- [Maou Gakuen no Hangyakusha Bahasa Indonesia Manga](https://www.ruenovel.com/2025/01/maou-gakuen-no-hangyakusha-bahasa.html)
-- [Bad-end go no Heroine Vol 1 Chapter 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/01/bad-end-go-no-heroine-vol-1-chapter-6.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
