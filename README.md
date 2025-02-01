@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Otonari no Tenshi-sama Jilid 10 Bab 8 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/otonari-no-tenshi-sama-jilid-10-bab-8.html)
 - [Roshidere Jilid 9.5 Chapter 21 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/01/roshidere-jilid-95-chapter-21-bahasa.html)
 - [Roshidere Jilid 9.5 Chapter 20 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/01/roshidere-jilid-95-chapter-20-bahasa.html)
 - [Tsuihou sareta Tensei Juukishi wa Game Chishiki de Musou suru Bahasa Indonesia Manga](https://www.ruenovel.com/2024/05/manga-tsuihou-sareta-tensei-juukishi-wa.html)
 - [The Best Assassin, Incarnated into a Different World’s Aristocrat Bahasa Indonesia Manga](https://www.ruenovel.com/2025/01/mangav-best-assassin-incarnated-into.html)
-- [Rettou Hito no Maken Tsukai Bahasa Indonesia Manga](https://www.ruenovel.com/2025/01/manga-rettou-hito-no-maken-tsukai.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
