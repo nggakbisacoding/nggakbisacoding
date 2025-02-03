@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
-- [Tsuki ga Michibiku Isekai Douchuu Bahasa Indonesia](https://www.ruenovel.com/2025/02/novel-tsuki-ga-michibiku-isekai-douchuu.html)
-- [[LN] Saijou no Osewa Jilid 7 Bab 3 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/ln-saijou-no-osewa-jilid-7-bab-3-bagian.html)
-- [Otonari no Tenshi-sama Jilid 10 Bab 8 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/otonari-no-tenshi-sama-jilid-10-bab-8.html)
-- [Roshidere Jilid 9.5 Chapter 21 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/01/roshidere-jilid-95-chapter-21-bahasa.html)
-- [Roshidere Jilid 9.5 Chapter 20 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/01/roshidere-jilid-95-chapter-20-bahasa.html)
+- [Tsuki ga Michibiku Isekai Douchuu Bahasa Indonesia Download](https://www.ruenovel.com/2025/02/tsuki-ga-michibiku-isekai-douchuu.html)
+- [Boukensha ni Naritai to Miyako ni Deteitta Musume ga S Rank ni Natteta Bahasa Indonesia Illustrations Volume 11](https://www.ruenovel.com/2025/02/boukensha-ni-naritai-to-miyako-illustrations-vol11.html)
+- [Boukensha ni Naritai to Miyako ni Deteitta Musume ga S Rank ni Natteta Bahasa Indonesia Illustrations Volume 10](https://www.ruenovel.com/2025/02/boukensha-ni-naritai-to-miyako-illustrations-vol10.html)
+- [Tsuki ga Michibiku Isekai Douchuu Bahasa Indonesia Illustrations Volume 4](https://www.ruenovel.com/2025/02/tsuki-ga-michibiku-isekai-douchuu-illustrations-volume4.html)
+- [Tsuki ga Michibiku Isekai Douchuu Bahasa Indonesia Illustrations Volume 3](https://www.ruenovel.com/2025/02/tsuki-ga-michibiku-isekai-douchuu-illustrations-volume3.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
