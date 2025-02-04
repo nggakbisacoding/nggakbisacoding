@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Moto Ansatsusha, Kizoku no Reijou Vol 1 Bab 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/moto-ansatsusha-kizoku-no-reijou-vol-1.html)
 - [Boukensha ni Naritai to Miyako ni Deteitta Musume ga S Rank ni Natteta Bahasa Indonesia Download](https://www.ruenovel.com/2025/01/boukensha-ni-naritai-to-miyako-ni.html)
 - [Tsuki ga Michibiku Isekai Douchuu Bahasa Indonesia Download](https://www.ruenovel.com/2025/02/tsuki-ga-michibiku-isekai-douchuu.html)
 - [Boukensha ni Naritai to Miyako ni Deteitta Musume ga S Rank ni Natteta Bahasa Indonesia Illustrations Volume 11](https://www.ruenovel.com/2025/02/boukensha-ni-naritai-to-miyako-illustrations-vol11.html)
 - [Boukensha ni Naritai to Miyako ni Deteitta Musume ga S Rank ni Natteta Bahasa Indonesia Illustrations Volume 10](https://www.ruenovel.com/2025/02/boukensha-ni-naritai-to-miyako-illustrations-vol10.html)
-- [Tsuki ga Michibiku Isekai Douchuu Bahasa Indonesia Illustrations Volume 4](https://www.ruenovel.com/2025/02/tsuki-ga-michibiku-isekai-douchuu-illustrations-volume4.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
