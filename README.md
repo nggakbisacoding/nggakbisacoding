@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Bad-end go no Heroine Vol 1 Chapter 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/bad-end-go-no-heroine-vol-1-chapter-7.html)
 - [Hanayome wo Ryakudatsu Jilid 2 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/hanayome-wo-ryakudatsu-jilid-2-epilog.html)
 - [Hanayome wo Ryakudatsu Jilid 2 Bab 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/hanayome-wo-ryakudatsu-jilid-2-bab-7.html)
 - [Hanayome wo Ryakudatsu Jilid 2 Selingan 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/hanayome-wo-ryakudatsu-jilid-2-selingan.html)
 - [Moto Ansatsusha, Kizoku no Reijou Vol 1 Bab 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/moto-ansatsusha-kizoku-no-reijou-vol-1.html)
-- [Boukensha ni Naritai to Miyako ni Deteitta Musume ga S Rank ni Natteta Bahasa Indonesia Download](https://www.ruenovel.com/2025/01/boukensha-ni-naritai-to-miyako-ni.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
