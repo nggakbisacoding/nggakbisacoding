@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Combatants Will Be Dispatched Bahasa Indonesia Manga](https://www.ruenovel.com/2024/12/manga-combatants-will-be-dispatched.html)
 - [Otonari no Tenshi-sama Jilid 10 Bab 9 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/otonari-no-tenshi-sama-jilid-10-bab-9.html)
 - [Roshidere Jilid 9.5 Chapter 23 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/roshidere-jilid-95-chapter-23-bahasa.html)
 - [Roshidere Jilid 9.5 Chapter 22 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/roshidere-jilid-95-chapter-22-bahasa.html)
 - [Bad-end go no Heroine Vol 1 Chapter 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/bad-end-go-no-heroine-vol-1-chapter-7.html)
-- [Hanayome wo Ryakudatsu Jilid 2 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/hanayome-wo-ryakudatsu-jilid-2-epilog.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
