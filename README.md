@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Otonari no Tenshi-sama Jilid 10 Bab 10 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/otonari-no-tenshi-sama-jilid-10-bab-10.html)
 - [[LN] Saijou no Osewa Jilid 7 Bab 3 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/ln-saijou-no-osewa-jilid-7-bab-3-bagian_9.html)
 - [Maou no Hajimekata Bahasa Indonesia Manga](https://www.ruenovel.com/2025/02/manga-maou-no-hajimekata-bahasa.html)
 - [Koi to Utatane Bahasa Indonesia Manga](https://www.ruenovel.com/2025/02/manga-koi-to-utatane-bahasa-indonesia.html)
 - [Kaifuku Jutsushi no Yarinaoshi ~ Sokushi Mahou to Skill Copy no Choetsu Heal Bahasa Indonesia Manga](https://www.ruenovel.com/2024/07/manga-kaifuku-jutsushi-no-yarinaoshi.html)
-- [Hametsu no Oukoku Bahasa Indonesia  Manga](https://www.ruenovel.com/2025/02/manga-hametsu-no-oukoku-bahasa-indonesia.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
