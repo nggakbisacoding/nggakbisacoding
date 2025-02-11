@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
-- [Moto Ansatsusha, Kizoku no Reijou Vol 1 Bab 8 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/moto-ansatsusha-kizoku-no-reijou-vol-1_11.html)
-- [Kami wa Game ni Ueteiru Bahasa Indonesia](https://www.ruenovel.com/2025/02/kami-wa-game-ni-ueteiru-bahasa-indonesia.html)
-- [Shangri-La Frontier Bahasa Indonesia Manga](https://www.ruenovel.com/2024/01/manga-shangri-la-frontier-bahasa.html)
-- [Otonari no Tenshi-sama Jilid 10 Bab 10 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/otonari-no-tenshi-sama-jilid-10-bab-10.html)
-- [[LN] Saijou no Osewa Jilid 7 Bab 3 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/ln-saijou-no-osewa-jilid-7-bab-3-bagian_9.html)
+- [Kami wa Game ni Ueteiru Bahasa Indonesia Download](https://www.ruenovel.com/2025/02/kami-wa-game-ni-ueteiru-download.html)
+- [Kami wa Game ni Ueteiru Bahasa Indonesia Illustrations Volume 4](https://www.ruenovel.com/2025/02/kami-wa-game-ni-ueteiru--illustrations-volume4.html)
+- [Kami wa Game ni Ueteiru Bahasa Indonesia Illustrations Volume 3](https://www.ruenovel.com/2025/02/kami-wa-game-ni-ueteiru--illustrations-volume3.html)
+- [Kami wa Game ni Ueteiru Bahasa Indonesia Illustrations Volume 2](https://www.ruenovel.com/2025/02/kami-wa-game-ni-ueteiru--illustrations-volume2.html)
+- [Kami wa Game ni Ueteiru Bahasa Indonesia Illustrations Volume 1](https://www.ruenovel.com/2025/02/kami-wa-game-ni-ueteiru--illustrations-volume1.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
