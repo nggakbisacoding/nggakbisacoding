@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Bad-end go no Heroine Vol 1 Chapter 8 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/bad-end-go-no-heroine-vol-1-chapter-8.html)
 - [Otonari no Tenshi-sama Jilid 10 SS 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/otonari-no-tenshi-sama-jilid-10-ss-1.html)
 - [Roshidere Jilid 9.5 Chapter 24 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/roshidere-jilid-95-chapter-24-bahasa.html)
 - [Kami wa Game ni Ueteiru Bahasa Indonesia Download](https://www.ruenovel.com/2025/02/kami-wa-game-ni-ueteiru-download.html)
 - [Kami wa Game ni Ueteiru Bahasa Indonesia Illustrations Volume 4](https://www.ruenovel.com/2025/02/kami-wa-game-ni-ueteiru--illustrations-volume4.html)
-- [Kami wa Game ni Ueteiru Bahasa Indonesia Illustrations Volume 3](https://www.ruenovel.com/2025/02/kami-wa-game-ni-ueteiru--illustrations-volume3.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
