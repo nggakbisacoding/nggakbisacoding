@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Otonari no Tenshi-sama Jilid 10 SS 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/otonari-no-tenshi-sama-jilid-10-ss-6.html)
+- [Otonari no Tenshi-sama Jilid 10 SS 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/otonari-no-tenshi-sama-jilid-10-ss-5.html)
+- [Otonari no Tenshi-sama Jilid 10 SS 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/otonari-no-tenshi-sama-jilid-10-ss-4.html)
+- [Otonari no Tenshi-sama Jilid 10 SS 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/otonari-no-tenshi-sama-jilid-10-ss-3.html)
 - [Ojou-sama no Yousu ga Okashii Volume 1 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/ojou-sama-no-yousu-ga-okashii-volume-1.html)
-- [Ore ga Kokuhaku Saretara, Ojou-sama no Yousu ga Okashii Volume 1 Ilustrasi](https://zerokaito.blogspot.com/2025/02/ore-ga-kokuhaku-saretara-ojou-sama-no.html)
-- [Otonari no Tenshi-sama Jilid 10 SS 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/otonari-no-tenshi-sama-jilid-10-ss-2.html)
-- [Bad-end go no Heroine Vol 1 Chapter 8 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/bad-end-go-no-heroine-vol-1-chapter-8.html)
-- [Otonari no Tenshi-sama Jilid 10 SS 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/otonari-no-tenshi-sama-jilid-10-ss-1.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
