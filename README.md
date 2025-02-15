@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Roshidere Jilid 9.5 Chapter 26 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/roshidere-jilid-95-chapter-26-bahasa.html)
+- [Roshidere Jilid 9.5 Chapter 25 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/roshidere-jilid-95-chapter-25-bahasa.html)
 - [Otonari no Tenshi-sama Jilid 10 SS 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/otonari-no-tenshi-sama-jilid-10-ss-6.html)
 - [Otonari no Tenshi-sama Jilid 10 SS 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/otonari-no-tenshi-sama-jilid-10-ss-5.html)
 - [Otonari no Tenshi-sama Jilid 10 SS 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/otonari-no-tenshi-sama-jilid-10-ss-4.html)
-- [Otonari no Tenshi-sama Jilid 10 SS 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/otonari-no-tenshi-sama-jilid-10-ss-3.html)
-- [Ojou-sama no Yousu ga Okashii Volume 1 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/ojou-sama-no-yousu-ga-okashii-volume-1.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
