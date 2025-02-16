@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Boku no Kanojo wa Saikou desu! Bahasa Indonesia Manga](https://www.ruenovel.com/2025/02/manga-boku-no-kanojo-wa-saikou-desu.html)
+- [Boku no Kokoro no Yabai Yatsu Bahasa Indonesia Manga](https://www.ruenovel.com/2025/02/manga-boku-no-kokoro-no-yabai-yatsu.html)
 - [Assassin&#39;s Pride Bahasa Indonesia Manga](https://www.ruenovel.com/2025/02/manga-assassins-pride-bahasa-indonesia.html)
 - [[LN] Saijou no Osewa Jilid 7 Bab 3 Bagian 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/ln-saijou-no-osewa-jilid-7-bab-3-bagian_16.html)
 - [Roshidere Jilid 9.5 Chapter 26 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/roshidere-jilid-95-chapter-26-bahasa.html)
-- [Roshidere Jilid 9.5 Chapter 25 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/roshidere-jilid-95-chapter-25-bahasa.html)
-- [Otonari no Tenshi-sama Jilid 10 SS 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/otonari-no-tenshi-sama-jilid-10-ss-6.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
