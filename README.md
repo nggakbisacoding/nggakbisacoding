@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Bukiyou na Senpai Bahasa Indonesia Manga](https://www.ruenovel.com/2025/02/manga-bukiyou-na-senpai-bahasa-indonesia.html)
+- [Roshidere Jilid 9.5 Chapter 28 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/roshidere-jilid-95-chapter-28-bahasa.html)
 - [Bad-end go no Heroine Vol 1 Chapter 9 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/bad-end-go-no-heroine-vol-1-chapter-9.html)
 - [Roshidere Jilid 9.5 Chapter 27 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/roshidere-jilid-95-chapter-27-bahasa.html)
 - [Boku no Kanojo wa Saikou desu! Bahasa Indonesia Manga](https://www.ruenovel.com/2025/02/manga-boku-no-kanojo-wa-saikou-desu.html)
-- [Boku no Kokoro no Yabai Yatsu Bahasa Indonesia Manga](https://www.ruenovel.com/2025/02/manga-boku-no-kokoro-no-yabai-yatsu.html)
-- [Assassin&#39;s Pride Bahasa Indonesia Manga](https://www.ruenovel.com/2025/02/manga-assassins-pride-bahasa-indonesia.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
