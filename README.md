@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Bad-end go no Heroine Vol 1 Chapter 10 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/bad-end-go-no-heroine-vol-1-chapter-10.html)
 - [Ojou-sama no Yousu ga Okashii Volume 1 Chapter 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/ojou-sama-no-yousu-ga-okashii-volume-1_20.html)
 - [Boukensha License o Hakudatsu Sareta Ossan Dakedo Bahasa Indonesia Manga](https://www.ruenovel.com/2025/02/manga-boukensha-license-o-hakudatsu.html)
 - [Bouken-ka ni Narou! Bahasa Indonesia Manga](https://www.ruenovel.com/2025/02/manga-bouken-ka-ni-narou-bahasa.html)
 - [Bukiyou na Senpai Bahasa Indonesia Manga](https://www.ruenovel.com/2025/02/manga-bukiyou-na-senpai-bahasa-indonesia.html)
-- [Roshidere Jilid 9.5 Chapter 28 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/roshidere-jilid-95-chapter-28-bahasa.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
