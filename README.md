@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Roshidere Jilid 9.5 Chapter 31 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/roshidere-jilid-95-chapter-31-bahasa.html)
 - [Roshidere Jilid 9.5 Chapter 30 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/roshidere-jilid-95-chapter-30-bahasa.html)
 - [[LN] Saijou no Osewa Jilid 7 Bab 3 Bagian 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/ln-saijou-no-osewa-jilid-7-bab-3-bagian_23.html)
 - [Roshidere Jilid 9.5 Chapter 29 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/roshidere-jilid-95-chapter-29-bahasa.html)
 - [Bad-end go no Heroine Vol 1 Chapter 10 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/bad-end-go-no-heroine-vol-1-chapter-10.html)
-- [Ojou-sama no Yousu ga Okashii Volume 1 Chapter 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/ojou-sama-no-yousu-ga-okashii-volume-1_20.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
