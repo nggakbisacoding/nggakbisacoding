@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
-- [Nageki no Bourei wa Intai Shitai Bahasa Indonesia](https://www.ruenovel.com/2025/02/ln-nageki-no-bourei-wa-intai-shitai.html)
-- [Ojou-sama no Yousu ga Okashii Volume 1 Chapter 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/ojou-sama-no-yousu-ga-okashii-volume-1_26.html)
-- [Bad-end go no Heroine Vol 1 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/bad-end-go-no-heroine-vol-1-epilog.html)
-- [Bad-end go no Heroine Vol 1 Chapter 11 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/02/bad-end-go-no-heroine-vol-1-chapter-11.html)
-- [Roshidere Jilid 9.5 Kata Penutup](https://zerokaito.blogspot.com/2025/02/roshidere-jilid-95-kata-penutup.html)
+- [Nageki no Bourei wa Intai Shitai Bahasa Indonesia Illustrations Volume 6](https://www.ruenovel.com/2025/02/nageki-no-bourei-wa-intai-shita-illustrations-vol6.html)
+- [Nageki no Bourei wa Intai Shitai Bahasa Indonesia Illustrations Volume 5](https://www.ruenovel.com/2025/02/nageki-no-bourei-wa-intai-shita-illustrations-vol5.html)
+- [Nageki no Bourei wa Intai Shitai Bahasa Indonesia Illustrations Volume 4](https://www.ruenovel.com/2025/02/nageki-no-bourei-wa-intai-shita-illustrations-vol4.html)
+- [Nageki no Bourei wa Intai Shitai Bahasa Indonesia Illustrations Volume 3](https://www.ruenovel.com/2025/02/nageki-no-bourei-wa-intai-shita-illustrations-vol3.html)
+- [Nageki no Bourei wa Intai Shitai Bahasa Indonesia Illustrations Volume 2](https://www.ruenovel.com/2025/02/nageki-no-bourei-wa-intai-shita-illustrations-vol2.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
