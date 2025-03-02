@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [[LN] Saijou no Osewa Jilid 7 Bab 4 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/03/ln-saijou-no-osewa-jilid-7-bab-4-bagian.html)
 - [Nageki no Bourei wa Intai Shitai Bahasa Indonesia Illustrations Volume 6](https://www.ruenovel.com/2025/02/nageki-no-bourei-wa-intai-shita-illustrations-vol6.html)
 - [Nageki no Bourei wa Intai Shitai Bahasa Indonesia Illustrations Volume 5](https://www.ruenovel.com/2025/02/nageki-no-bourei-wa-intai-shita-illustrations-vol5.html)
 - [Nageki no Bourei wa Intai Shitai Bahasa Indonesia Illustrations Volume 4](https://www.ruenovel.com/2025/02/nageki-no-bourei-wa-intai-shita-illustrations-vol4.html)
 - [Nageki no Bourei wa Intai Shitai Bahasa Indonesia Illustrations Volume 3](https://www.ruenovel.com/2025/02/nageki-no-bourei-wa-intai-shita-illustrations-vol3.html)
-- [Nageki no Bourei wa Intai Shitai Bahasa Indonesia Illustrations Volume 2](https://www.ruenovel.com/2025/02/nageki-no-bourei-wa-intai-shita-illustrations-vol2.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
