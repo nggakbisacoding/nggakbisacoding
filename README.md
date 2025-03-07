@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Ojou-sama no Yousu ga Okashii Volume 1 Chapter 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/03/ojou-sama-no-yousu-ga-okashii-volume-1.html)
 - [Gimai Seikatsu Volume 13 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/03/gimai-seikatsu-volume-13-prolog-bahasa.html)
 - [Gimai Seikatsu Volume 13 Ilustrasi](https://zerokaito.blogspot.com/2025/03/gimai-seikatsu-volume-13-ilustrasi.html)
 - [Kimizero Jilid 9 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/03/kimizero-jilid-9-prolog-bahasa-indonesia.html)
 - [Kimizero Jilid 9 Ilustrasi](https://zerokaito.blogspot.com/2025/03/kimizero-jilid-9-ilustrasi.html)
-- [Nageki no Bourei wa Intai Shitai Bahasa Indonesia Download](https://www.ruenovel.com/2025/03/nageki-no-bourei-wa-intai-shitai-download.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
