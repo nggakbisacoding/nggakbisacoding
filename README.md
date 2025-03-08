@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Manga Soubi Seisaku-kei Cheat de Isekai wo Jiyuu ni Ikiteikimasu Bahasa Indonesia](https://www.ruenovel.com/2025/03/manga-soubi-seisaku-kei-cheat-de-isekai.html)
+- [Nishuume Cheat no Tensei Madoushi Bahasa Indonesia Manga](https://www.ruenovel.com/2025/03/manga-nishuume-cheat-no-tensei-madoushi.html)
+- [Let’s Manage the Tower Bahasa Indonesia Manga](https://www.ruenovel.com/2024/10/manga-lets-manage-tower-bahasa.html)
 - [Ojou-sama no Yousu ga Okashii Volume 1 Chapter 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/03/ojou-sama-no-yousu-ga-okashii-volume-1.html)
 - [Gimai Seikatsu Volume 13 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/03/gimai-seikatsu-volume-13-prolog-bahasa.html)
-- [Gimai Seikatsu Volume 13 Ilustrasi](https://zerokaito.blogspot.com/2025/03/gimai-seikatsu-volume-13-ilustrasi.html)
-- [Kimizero Jilid 9 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/03/kimizero-jilid-9-prolog-bahasa-indonesia.html)
-- [Kimizero Jilid 9 Ilustrasi](https://zerokaito.blogspot.com/2025/03/kimizero-jilid-9-ilustrasi.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
