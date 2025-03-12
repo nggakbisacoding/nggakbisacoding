@@ -71,10 +71,10 @@
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
 - [To Be a Power in the Shadows! Bahasa Indonesia Download](https://www.ruenovel.com/2020/09/to-be-power-in-shadows-bahasa-indonesia-download.html)
+- [To Be a Power in the Shadows! Bahasa Indonesia Illustrations Volume 6](https://www.ruenovel.com/2025/03/to-be-power-in-shadows-bahasa-indonesia-illustrations-volume6.html)
+- [To Be a Power in the Shadows! Bahasa Indonesia Illustrations Volume 5](https://www.ruenovel.com/2025/03/to-be-power-in-shadows-bahasa-indonesia-illustrations-volume5.html)
 - [Gimai Seikatsu Another Days 1](https://zerokaito.blogspot.com/2025/03/gimai-seikatsu-another-days-1.html)
 - [Gimai Seikatsu Another Days Ilustrasi](https://zerokaito.blogspot.com/2025/03/gimai-seikatsu-another-days-ilustrasi.html)
-- [Gimai Seikatsu Volume 13 Chapter 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/03/gimai-seikatsu-volume-13-chapter-1.html)
-- [Kimizero Jilid 9 Bab 1.5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/03/kimizero-jilid-9-bab-15-bahasa-indonesia.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
