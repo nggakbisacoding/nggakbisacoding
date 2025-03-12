@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Gimai Seikatsu Volume 13 Chapter 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/03/gimai-seikatsu-volume-13-chapter-1.html)
 - [Kimizero Jilid 9 Bab 1.5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/03/kimizero-jilid-9-bab-15-bahasa-indonesia.html)
 - [Kimizero Jilid 9 Bab 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/03/kimizero-jilid-9-bab-1-bahasa-indonesia.html)
 - [[LN] Saijou no Osewa Jilid 7 Bab 4 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/03/ln-saijou-no-osewa-jilid-7-bab-4-bagian_9.html)
 - [Yasei no Last Boss ga Arawareta! Bahasa Indonesia Manga](https://www.ruenovel.com/2025/03/manga-yasei-no-last-boss-ga-arawareta.html)
-- [Soubi Seisaku-kei Cheat de Isekai wo Jiyuu ni Ikiteikimasu Bahasa Indonesia Manga](https://www.ruenovel.com/2025/03/manga-soubi-seisaku-kei-cheat-de-isekai.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
