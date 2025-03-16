@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [[LN] Saijou no Osewa Jilid 7 Bab 4 Bagian 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/03/ln-saijou-no-osewa-jilid-7-bab-4-bagian_16.html)
 - [I’m a VTuber but I Forgot To Stop the Stream and Became a Legend Bahasa Indonesia](https://www.ruenovel.com/2025/03/ln-im-vtuber-but-i-forgot-to-stop.html)
 - [To Be a Power in the Shadows! Bahasa Indonesia Download](https://www.ruenovel.com/2020/09/to-be-power-in-shadows-bahasa-indonesia-download.html)
 - [To Be a Power in the Shadows! Bahasa Indonesia Illustrations Volume 6](https://www.ruenovel.com/2025/03/to-be-power-in-shadows-bahasa-indonesia-illustrations-volume6.html)
 - [To Be a Power in the Shadows! Bahasa Indonesia Illustrations Volume 5](https://www.ruenovel.com/2025/03/to-be-power-in-shadows-bahasa-indonesia-illustrations-volume5.html)
-- [Gimai Seikatsu Another Days 1](https://zerokaito.blogspot.com/2025/03/gimai-seikatsu-another-days-1.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
