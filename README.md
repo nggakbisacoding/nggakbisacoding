@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
-- [Kimizero Jilid 9 Bab 2.5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/03/kimizero-jilid-9-bab-25-bahasa-indonesia.html)
-- [Kimizero Jilid 9 Bab 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/03/kimizero-jilid-9-bab-2-bahasa-indonesia.html)
-- [[LN] Saijou no Osewa Jilid 7 Bab SS Bahasa Indonesia](https://zerokaito.blogspot.com/2025/03/ln-saijou-no-osewa-jilid-7-bab-ss.html)
-- [[LN] Saijou no Osewa Jilid 7 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/03/ln-saijou-no-osewa-jilid-7-epilog.html)
-- [[LN] Saijou no Osewa Jilid 7 Bab 4 Bagian 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/03/ln-saijou-no-osewa-jilid-7-bab-4-bagian_16.html)
+- [I’m a VTuber but I Forgot To Stop the Stream and Became a Legend Bahasa Indonesia Download](https://www.ruenovel.com/2025/03/im-vtuber-but-i-forgot-to-stop-stream.html)
+- [I’m a VTuber but I Forgot To Stop the Stream and Became a Legend Bahasa Indonesia Illustrations Volume 7](https://www.ruenovel.com/2025/03/im-vtuber-ut-i-forgot-to-stop-stream-illustrations-volume7.html)
+- [I’m a VTuber but I Forgot To Stop the Stream and Became a Legend Bahasa   Indonesia Illustrations Volume 6](https://www.ruenovel.com/2025/03/im-vtuber-but-i-forgot-to-stop-stream-illustrations-volume6.html)
+- [I’m a VTuber but I Forgot To Stop the Stream and Became a Legend Bahasa   Indonesia Illustrations Volume 5](https://www.ruenovel.com/2025/03/im-vtuber-but-i-forgot-to-stop-stream-illustrations-volume5.html)
+- [I’m a VTuber but I Forgot To Stop the Stream and Became a Legend Bahasa Indonesia Illustrations Volume 4](https://www.ruenovel.com/2025/03/im-vtuber-but-i-forgot-to-stop-stream-illustrations-volume4.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
