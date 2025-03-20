@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Otonari no Tenshi-sama Volume 11 Chapter 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/03/otonari-no-tenshi-sama-volume-11_21.html)
+- [Otonari no Tenshi-sama Volume 11 Ilustrasi](https://zerokaito.blogspot.com/2025/03/otonari-no-tenshi-sama-volume-11.html)
 - [Gimai Seikatsu Another Days 2](https://zerokaito.blogspot.com/2025/03/gimai-seikatsu-another-days-2.html)
 - [Gimai Seikatsu Volume 13 Chapter 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/03/gimai-seikatsu-volume-13-chapter-2.html)
 - [I’m a VTuber but I Forgot To Stop the Stream and Became a Legend Bahasa Indonesia Download](https://www.ruenovel.com/2025/03/im-vtuber-but-i-forgot-to-stop-stream.html)
-- [I’m a VTuber but I Forgot To Stop the Stream and Became a Legend Bahasa Indonesia Illustrations Volume 7](https://www.ruenovel.com/2025/03/im-vtuber-ut-i-forgot-to-stop-stream-illustrations-volume7.html)
-- [I’m a VTuber but I Forgot To Stop the Stream and Became a Legend Bahasa   Indonesia Illustrations Volume 6](https://www.ruenovel.com/2025/03/im-vtuber-but-i-forgot-to-stop-stream-illustrations-volume6.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
