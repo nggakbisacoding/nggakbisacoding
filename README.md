@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [The Wrong Way to Use Healing Magic Bahasa Indonesia Manga](https://www.ruenovel.com/2025/03/manga-wrong-way-to-use-healing-magic.html)
+- [Katainaka no Ossan, Kensei ni Naru Bahasa Indonesia Manga](https://www.ruenovel.com/2025/03/manga-katainaka-no-ossan-kensei-ni-naru.html)
+- [Fuguushoku “Kanteishi” ga Jitsu wa Saikyou Datta Bahasa Indonesia Manga](https://www.ruenovel.com/2025/03/manga-fuguushoku-kanteishi-ga-jitsu-wa.html)
+- [Being Able to Edit Skills in Another World, I Gained OP Waifus Bahasa Indonesia  Manga](https://www.ruenovel.com/2025/03/manga-being-able-to-edit-skills-in.html)
 - [A-Rank Party wo Ridatsu Shita Ore wa, Moto Oshiego-tachi to Meikyuu Shinbu wo Mezasu Bahasa Indonesia Manga](https://www.ruenovel.com/2025/03/manga-rank-party-wo-ridatsu-shita-ore.html)
-- [Otonari no Tenshi-sama Volume 11 Chapter 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/03/otonari-no-tenshi-sama-volume-11_21.html)
-- [Otonari no Tenshi-sama Volume 11 Ilustrasi](https://zerokaito.blogspot.com/2025/03/otonari-no-tenshi-sama-volume-11.html)
-- [Gimai Seikatsu Another Days 2](https://zerokaito.blogspot.com/2025/03/gimai-seikatsu-another-days-2.html)
-- [Gimai Seikatsu Volume 13 Chapter 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/03/gimai-seikatsu-volume-13-chapter-2.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
