@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [How a Realist Hero Rebuilt The Kingdom Bahasa Indonesia Manga](https://www.ruenovel.com/2025/03/manga-how-realist-hero-rebuilt-kingdom.html)
 - [The Wrong Way to Use Healing Magic Bahasa Indonesia Manga](https://www.ruenovel.com/2025/03/manga-wrong-way-to-use-healing-magic.html)
 - [Katainaka no Ossan, Kensei ni Naru Bahasa Indonesia Manga](https://www.ruenovel.com/2025/03/manga-katainaka-no-ossan-kensei-ni-naru.html)
 - [Fuguushoku “Kanteishi” ga Jitsu wa Saikyou Datta Bahasa Indonesia Manga](https://www.ruenovel.com/2025/03/manga-fuguushoku-kanteishi-ga-jitsu-wa.html)
 - [Being Able to Edit Skills in Another World, I Gained OP Waifus Bahasa Indonesia  Manga](https://www.ruenovel.com/2025/03/manga-being-able-to-edit-skills-in.html)
-- [A-Rank Party wo Ridatsu Shita Ore wa, Moto Oshiego-tachi to Meikyuu Shinbu wo Mezasu Bahasa Indonesia Manga](https://www.ruenovel.com/2025/03/manga-rank-party-wo-ridatsu-shita-ore.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
