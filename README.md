@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Kimizero Jilid 9 Bab 3.5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/03/kimizero-jilid-9-bab-35-bahasa-indonesia.html)
+- [Kimizero Jilid 9 Bab 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/03/kimizero-jilid-9-bab-3-bahasa-indonesia.html)
 - [[LN] Saijou no Osewa Jilid 8 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/03/ln-saijou-no-osewa-jilid-8-prolog.html)
 - [[LN] Saijou no Osewa Jilid 8 Ilustrasi](https://zerokaito.blogspot.com/2025/03/ln-saijou-no-osewa-jilid-8-ilustrasi.html)
 - [How a Realist Hero Rebuilt The Kingdom Bahasa Indonesia Manga](https://www.ruenovel.com/2025/03/manga-how-realist-hero-rebuilt-kingdom.html)
-- [The Wrong Way to Use Healing Magic Bahasa Indonesia Manga](https://www.ruenovel.com/2025/03/manga-wrong-way-to-use-healing-magic.html)
-- [Katainaka no Ossan, Kensei ni Naru Bahasa Indonesia Manga](https://www.ruenovel.com/2025/03/manga-katainaka-no-ossan-kensei-ni-naru.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
