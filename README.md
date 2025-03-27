@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Geek Mob Mercenary Knows His Place Bahasa Indonesia](https://www.ruenovel.com/2025/03/ln-geek-mob-mercenary-knows-his-place.html)
 - [Otonari no Tenshi-sama Volume 11 Chapter 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/03/otonari-no-tenshi-sama-volume-11_28.html)
 - [Gimai Seikatsu Another Days 3](https://zerokaito.blogspot.com/2025/03/gimai-seikatsu-another-days-3.html)
 - [Gimai Seikatsu Volume 13 Chapter 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/03/gimai-seikatsu-volume-13-chapter-3.html)
 - [Kimizero Jilid 9 Bab 3.5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/03/kimizero-jilid-9-bab-35-bahasa-indonesia.html)
-- [Kimizero Jilid 9 Bab 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/03/kimizero-jilid-9-bab-3-bahasa-indonesia.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
