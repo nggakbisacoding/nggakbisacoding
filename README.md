@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Geek Mob Mercenary Knows His Place Bahasa Indonesia Download](https://www.ruenovel.com/2025/03/geek-mob-mercenary-knows-his-place.html)
 - [Geek Mob Mercenary Knows His Place Bahasa Indonesia Illustrations Volume 3](https://www.ruenovel.com/2025/03/geek-mobmercenary-knows-his-place-illustrations-volume3.html)
 - [Geek Mob Mercenary Knows His Place Bahasa Indonesia Illustrations Volume 2](https://www.ruenovel.com/2025/03/geek-mob-mercenary-knows-his-place-illustrations-volume2.html)
 - [Geek Mob Mercenary Knows His Place Bahasa Indonesia Illustrations Volume 1](https://www.ruenovel.com/2025/03/geek-mo-mercenary-knows-his-place-illustrations-volume1.html)
 - [Geek Mob Mercenary Knows His Place Bahasa Indonesia](https://www.ruenovel.com/2025/03/ln-geek-mob-mercenary-knows-his-place.html)
-- [Otonari no Tenshi-sama Volume 11 Chapter 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/03/otonari-no-tenshi-sama-volume-11_28.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
