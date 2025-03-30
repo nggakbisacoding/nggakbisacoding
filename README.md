@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Sekai Saikyou no Kouei Bahasa Indonesia Manga](https://www.ruenovel.com/2025/03/manga-sekai-saikyou-no-kouei-bahasa.html)
+- [Mom, Please Don&#39;t Come Adventuring with Me! Bahasa Indonesia Manga](https://www.ruenovel.com/2025/03/manga-mom-please-dont-come-adventuring.html)
+- [Fuguushoku “Kajishi” dakedo Saikyou desu Bahasa Indonesia Manga](https://www.ruenovel.com/2025/03/manga-fuguushoku-kajishi-dakedo-saikyou.html)
 - [Even Though I Was Kicked Out of the Brave Party, I Came to be Invincible with the EX Skill “Fixed Damage Bahasa Indonesia Manga](https://www.ruenovel.com/2025/03/manga-even-though-i-was-kicked-out-of.html)
 - [Eiyuu no Musume to Shite Umarekawatta Eiyuu wa Futatabi Eiyuu o Mezasu Bahasa Indonesia Manga](https://www.ruenovel.com/2025/03/manga-eiyuu-no-musume-to-shite.html)
-- [[LN] Saijou no Osewa Jilid 8 Bab 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/03/ln-saijou-no-osewa-jilid-8-bab-1-bahasa.html)
-- [Geek Mob Mercenary Knows His Place Bahasa Indonesia Download](https://www.ruenovel.com/2025/03/geek-mob-mercenary-knows-his-place.html)
-- [Geek Mob Mercenary Knows His Place Bahasa Indonesia Illustrations Volume 3](https://www.ruenovel.com/2025/03/geek-mobmercenary-knows-his-place-illustrations-volume3.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
