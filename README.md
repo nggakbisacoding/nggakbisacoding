@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Zettai ni Damage wo Ukenai Skill wo Moratta node, Boukensha to shite Musou shite miru Bahasa Indonesia Manga](https://www.ruenovel.com/2025/03/zettai-ni-damage-wo-ukenai-skill-wo.html)
+- [Zennin Ossan, Umare Kawattara SSS Rank Jinsei ga Kakutei Shita Bahasa Indonesia Manga](https://www.ruenovel.com/2025/03/manga-zennin-ossan-umare-kawattara-sss.html)
+- [Using Gacha to Increase My Companions and to Create the Strongest Girls’ Army Corps Bahasa Indonesia Manga](https://www.ruenovel.com/2025/03/manga-using-gacha-to-increase-my.html)
 - [Sekai Saikyou no Kouei Bahasa Indonesia Manga](https://www.ruenovel.com/2025/03/manga-sekai-saikyou-no-kouei-bahasa.html)
 - [Mom, Please Don&#39;t Come Adventuring with Me! Bahasa Indonesia Manga](https://www.ruenovel.com/2025/03/manga-mom-please-dont-come-adventuring.html)
-- [Fuguushoku “Kajishi” dakedo Saikyou desu Bahasa Indonesia Manga](https://www.ruenovel.com/2025/03/manga-fuguushoku-kajishi-dakedo-saikyou.html)
-- [Even Though I Was Kicked Out of the Brave Party, I Came to be Invincible with the EX Skill “Fixed Damage Bahasa Indonesia Manga](https://www.ruenovel.com/2025/03/manga-even-though-i-was-kicked-out-of.html)
-- [Eiyuu no Musume to Shite Umarekawatta Eiyuu wa Futatabi Eiyuu o Mezasu Bahasa Indonesia Manga](https://www.ruenovel.com/2025/03/manga-eiyuu-no-musume-to-shite.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
