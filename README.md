@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Using Gacha to Increase My Companions and to Create the Strongest Girls’ Army Corps Bahasa Indonesia Manga.](https://www.ruenovel.com/2025/04/using-gacha-to-increase-my-companions.html)
 - [Kimizero Jilid 9 Bab 4.5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/kimizero-jilid-9-bab-45-bahasa-indonesia.html)
 - [Kimizero Jilid 9 Bab 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/kimizero-jilid-9-bab-4-bahasa-indonesia.html)
 - [Zettai ni Damage wo Ukenai Skill wo Moratta node, Boukensha to shite Musou shite miru Bahasa Indonesia Manga](https://www.ruenovel.com/2025/03/zettai-ni-damage-wo-ukenai-skill-wo.html)
 - [Zennin Ossan, Umare Kawattara SSS Rank Jinsei ga Kakutei Shita Bahasa Indonesia Manga](https://www.ruenovel.com/2025/03/manga-zennin-ossan-umare-kawattara-sss.html)
-- [Sekai Saikyou no Kouei Bahasa Indonesia Manga](https://www.ruenovel.com/2025/03/manga-sekai-saikyou-no-kouei-bahasa.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
