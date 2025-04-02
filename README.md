@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Gimai Seikatsu Another Days 4](https://zerokaito.blogspot.com/2025/04/gimai-seikatsu-another-days-4.html)
 - [Gimai Seikatsu Volume 13 Chapter 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/gimai-seikatsu-volume-13-chapter-4.html)
 - [Using Gacha to Increase My Companions and to Create the Strongest Girls’ Army Corps Bahasa Indonesia Manga.](https://www.ruenovel.com/2025/04/using-gacha-to-increase-my-companions.html)
 - [Kimizero Jilid 9 Bab 4.5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/kimizero-jilid-9-bab-45-bahasa-indonesia.html)
 - [Kimizero Jilid 9 Bab 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/kimizero-jilid-9-bab-4-bahasa-indonesia.html)
-- [Zettai ni Damage wo Ukenai Skill wo Moratta node, Boukensha to shite Musou shite miru Bahasa Indonesia Manga](https://www.ruenovel.com/2025/03/zettai-ni-damage-wo-ukenai-skill-wo.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
