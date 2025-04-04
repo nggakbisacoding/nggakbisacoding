@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
-- [Isekaigaeri no Yuusha ga Gendai Saikyou! Bahasa Indonesia Manga](https://www.ruenovel.com/2025/04/manga-isekaigaeri-no-yuusha-ga-gendai.html)
-- [Eeh, Tamer wa Tsukaenai tte Party kara Tsuiho Shita yo ne? Bahasa Indonesia Manga](https://www.ruenovel.com/2025/04/manga-eeh-tamer-wa-tsukaenai-tte-party.html)
-- [Otonari no Tenshi-sama Volume 11 Chapter 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/otonari-no-tenshi-sama-volume-11.html)
-- [Gimai Seikatsu Another Days 4](https://zerokaito.blogspot.com/2025/04/gimai-seikatsu-another-days-4.html)
-- [Gimai Seikatsu Volume 13 Chapter 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/gimai-seikatsu-volume-13-chapter-4.html)
+- [Igyou Atama-san to Ningen-chan Bahasa Indonesia Manga](https://www.ruenovel.com/2025/04/manga-igyou-atama-san-to-ningen-chan.html)
+- [Tatoeba Last Dungeon Mae no Mura no Shounen ga Joban no Machi de Kurasu Youna Monogatari Bahasa Indonesia Manga](https://www.ruenovel.com/2024/12/manga-tatoeba-last-dungeon-mae-no-mura.html)
+- [Souzou Renkinjutsushi wa Jiyuu wo Ouka suru Bahasa Indonesia Manga](https://www.ruenovel.com/2025/04/manga-souzou-renkinjutsushi-wa-jiyuu-wo.html)
+- [Saibai Cheat de Saikyou Saien ~E, Tada no Katei Saien desu kedo?~ Bahasa Indonesia](https://www.ruenovel.com/2025/04/manga-saibai-cheat-de-saikyou-saien-e.html)
+- [Nazo no Kanojo X Bahasa Indonesia  Manga](https://www.ruenovel.com/2024/06/manga-nazo-no-kanojo-x-bahasa-indonesia.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
