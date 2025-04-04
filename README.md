@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Isekaigaeri no Yuusha ga Gendai Saikyou! Bahasa Indonesia Manga](https://www.ruenovel.com/2025/04/manga-isekaigaeri-no-yuusha-ga-gendai.html)
+- [Eeh, Tamer wa Tsukaenai tte Party kara Tsuiho Shita yo ne? Bahasa Indonesia Manga](https://www.ruenovel.com/2025/04/manga-eeh-tamer-wa-tsukaenai-tte-party.html)
 - [Otonari no Tenshi-sama Volume 11 Chapter 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/otonari-no-tenshi-sama-volume-11.html)
 - [Gimai Seikatsu Another Days 4](https://zerokaito.blogspot.com/2025/04/gimai-seikatsu-another-days-4.html)
 - [Gimai Seikatsu Volume 13 Chapter 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/gimai-seikatsu-volume-13-chapter-4.html)
-- [Using Gacha to Increase My Companions and to Create the Strongest Girls’ Army Corps Bahasa Indonesia Manga.](https://www.ruenovel.com/2025/04/using-gacha-to-increase-my-companions.html)
-- [Kimizero Jilid 9 Bab 4.5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/kimizero-jilid-9-bab-45-bahasa-indonesia.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
