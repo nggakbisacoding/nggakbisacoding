@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Ojou-sama no Yousu ga Okashii Volume 1 Chapter 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/ojou-sama-no-yousu-ga-okashii-volume-1.html)
 - [Igyou Atama-san to Ningen-chan Bahasa Indonesia Manga](https://www.ruenovel.com/2025/04/manga-igyou-atama-san-to-ningen-chan.html)
 - [Tatoeba Last Dungeon Mae no Mura no Shounen ga Joban no Machi de Kurasu Youna Monogatari Bahasa Indonesia Manga](https://www.ruenovel.com/2024/12/manga-tatoeba-last-dungeon-mae-no-mura.html)
 - [Souzou Renkinjutsushi wa Jiyuu wo Ouka suru Bahasa Indonesia Manga](https://www.ruenovel.com/2025/04/manga-souzou-renkinjutsushi-wa-jiyuu-wo.html)
 - [Saibai Cheat de Saikyou Saien ~E, Tada no Katei Saien desu kedo?~ Bahasa Indonesia](https://www.ruenovel.com/2025/04/manga-saibai-cheat-de-saikyou-saien-e.html)
-- [Nazo no Kanojo X Bahasa Indonesia  Manga](https://www.ruenovel.com/2024/06/manga-nazo-no-kanojo-x-bahasa-indonesia.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
