@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
-- [Yuusha Party wo Tsuihousareta Hakuma Doushi, S Rank Boukensha ni Hirowareru Bahasa Indonesia Manga](https://www.ruenovel.com/2025/04/manga-yuusha-party-wo-tsuihousareta.html)
-- [Ojou-sama no Yousu ga Okashii Volume 1 Chapter 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/ojou-sama-no-yousu-ga-okashii-volume-1.html)
-- [Igyou Atama-san to Ningen-chan Bahasa Indonesia Manga](https://www.ruenovel.com/2025/04/manga-igyou-atama-san-to-ningen-chan.html)
-- [Tatoeba Last Dungeon Mae no Mura no Shounen ga Joban no Machi de Kurasu Youna Monogatari Bahasa Indonesia Manga](https://www.ruenovel.com/2024/12/manga-tatoeba-last-dungeon-mae-no-mura.html)
-- [Souzou Renkinjutsushi wa Jiyuu wo Ouka suru Bahasa Indonesia Manga](https://www.ruenovel.com/2025/04/manga-souzou-renkinjutsushi-wa-jiyuu-wo.html)
+- [Genius Prince’s National Revitalization from State Deficit ~ Right, Let Us Sell the Country Bahasa Indonesia Download](https://www.ruenovel.com/2020/04/genius-princes-national-revitalization-download.html)
+- [Genius Prince’s National Revitalization from State Deficit ~ Right, Let Us Sell the Country Bahasa Indonesia Illustrations Volume 12](https://www.ruenovel.com/2025/04/genius-princes-national-revitalization-illustratiosn-volume12.html)
+- [Genius Prince’s National Revitalization from State Deficit ~ Right, Let Us Sell the Country Bahasa Indonesia Illustrations Volume 11](https://www.ruenovel.com/2025/04/genius-princes-national-revitalization.html)
+- [Genius Prince’s National Revitalization from State Deficit ~ Right, Let Us Sell the Country Bahasa Indonesia Illustrations Volume 10](https://www.ruenovel.com/2025/04/blog-post.html)
+- [Genius Prince’s National Revitalization from State Deficit ~ Right, Let Us Sell the Country Bahasa Indonesia Illustrations Volume 9](https://www.ruenovel.com/2025/04/genius-princes-national-revitalization-illustratiosn-volume9.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
