@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [[LN] Saijou no Osewa Jilid 8 Bab 2 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/ln-saijou-no-osewa-jilid-8-bab-2-bagian.html)
 - [A Demon Lord’s Tale: Dungeons, Monster Girls, and Heartwarming Bliss Bahasa Indonesia Download](https://www.ruenovel.com/2020/05/a-demon-lords-tale-dungeons-monster.html)
 - [Genius Prince’s National Revitalization from State Deficit ~ Right, Let Us Sell the Country Bahasa Indonesia Download](https://www.ruenovel.com/2020/04/genius-princes-national-revitalization-download.html)
 - [Genius Prince’s National Revitalization from State Deficit ~ Right, Let Us Sell the Country Bahasa Indonesia Illustrations Volume 12](https://www.ruenovel.com/2025/04/genius-princes-national-revitalization-illustratiosn-volume12.html)
 - [Genius Prince’s National Revitalization from State Deficit ~ Right, Let Us Sell the Country Bahasa Indonesia Illustrations Volume 11](https://www.ruenovel.com/2025/04/genius-princes-national-revitalization.html)
-- [Genius Prince’s National Revitalization from State Deficit ~ Right, Let Us Sell the Country Bahasa Indonesia Illustrations Volume 10](https://www.ruenovel.com/2025/04/blog-post.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
