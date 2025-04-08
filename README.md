@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Kimizero Jilid 9 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/kimizero-jilid-9-epilog-bahasa-indonesia.html)
+- [Kimizero Jilid 9 Bab 5.5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/kimizero-jilid-9-bab-55-bahasa-indonesia.html)
+- [Kimizero Jilid 9 Bab 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/kimizero-jilid-9-bab-5-bahasa-indonesia.html)
 - [Omaera Hayaku Kekkon Volume 1 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/omaera-hayaku-kekkon-volume-1-prolog.html)
 - [Omaera Hayaku Kekkon Shiro yo~! Volume 1 Ilustrasi](https://zerokaito.blogspot.com/2025/04/omaera-hayaku-kekkon-shiro-yo-volume-1.html)
-- [Omaera Hayaku Kekkon Shiroyo~! 1 Sou Iwareteru Joshi ga Sanin Irundesukedo? Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/omaera-hayaku-kekkon-shiroyo-1-sou.html)
-- [[LN] Saijou no Osewa Jilid 8 Bab 2 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/ln-saijou-no-osewa-jilid-8-bab-2-bagian.html)
-- [A Demon Lord’s Tale: Dungeons, Monster Girls, and Heartwarming Bliss Bahasa Indonesia Download](https://www.ruenovel.com/2020/05/a-demon-lords-tale-dungeons-monster.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
