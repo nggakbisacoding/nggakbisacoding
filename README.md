@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Gimai Seikatsu Another Days 5](https://zerokaito.blogspot.com/2025/04/gimai-seikatsu-another-days-5.html)
 - [Gimai Seikatsu Volume 13 Chapter 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/gimai-seikatsu-volume-13-chapter-5.html)
 - [Kimizero Jilid 9 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/kimizero-jilid-9-epilog-bahasa-indonesia.html)
 - [Kimizero Jilid 9 Bab 5.5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/kimizero-jilid-9-bab-55-bahasa-indonesia.html)
 - [Kimizero Jilid 9 Bab 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/kimizero-jilid-9-bab-5-bahasa-indonesia.html)
-- [Omaera Hayaku Kekkon Volume 1 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/omaera-hayaku-kekkon-volume-1-prolog.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
