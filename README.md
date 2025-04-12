@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [[LN] Saijou no Osewa Jilid 8 Bab 2 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/ln-saijou-no-osewa-jilid-8-bab-2-bagian_13.html)
 - [Otonari no Tenshi-sama Volume 11 Chapter 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/otonari-no-tenshi-sama-volume-11_11.html)
 - [Gimai Seikatsu Another Days 5](https://zerokaito.blogspot.com/2025/04/gimai-seikatsu-another-days-5.html)
 - [Gimai Seikatsu Volume 13 Chapter 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/gimai-seikatsu-volume-13-chapter-5.html)
 - [Kimizero Jilid 9 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/kimizero-jilid-9-epilog-bahasa-indonesia.html)
-- [Kimizero Jilid 9 Bab 5.5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/kimizero-jilid-9-bab-55-bahasa-indonesia.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
