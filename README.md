@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Free Life Fantasy Online Bahasa Indonesia Manga](https://www.ruenovel.com/2025/04/free-life-fantasy-online-bahasa.html)
+- [Jitsu wa Ore, Saikyou deshita? Bahasa Indonesia Manga](https://www.ruenovel.com/2024/01/manga-jitsu-wa-ore-saikyou-deshita.html)
+- [Kusunoki-san wa Koukou Debut ni Shippai Shite Iru Bahasa Indonesia Manga](https://www.ruenovel.com/2025/04/manga-kusunoki-san-wa-koukou-debut-ni.html)
+- [Miyu-chan wa Zutto Tomodachi Bahasa Indonesia Manga](https://www.ruenovel.com/2025/04/manga-miyu-chan-wa-zutto-tomodachi.html)
 - [Kimizero Jilid 10 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/kimizero-jilid-10-prolog-bahasa.html)
-- [Kimizero Jilid 10 Ilustrasi](https://zerokaito.blogspot.com/2025/04/kimizero-jilid-10-ilustrasi.html)
-- [[LN] Saijou no Osewa Jilid 8 Bab 2 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/ln-saijou-no-osewa-jilid-8-bab-2-bagian_13.html)
-- [Otonari no Tenshi-sama Volume 11 Chapter 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/otonari-no-tenshi-sama-volume-11_11.html)
-- [Gimai Seikatsu Another Days 5](https://zerokaito.blogspot.com/2025/04/gimai-seikatsu-another-days-5.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
