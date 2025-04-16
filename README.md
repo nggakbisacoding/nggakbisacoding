@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Manga Dokushin Kizoku wa Isekai wo Ouka Suru: Kekkon Shinai Otoko no Yuuga na Ohitori-sama Life  Bahasa Indonesia](https://www.ruenovel.com/2025/04/manga-dokushin-kizoku-wa-isekai-wo-ouka.html)
+- [Danshi dato Omotteita Osananajimi tono Shinkon Seikatsu ga Umaku Ikisugiru Ken ni Tsuite Bahasa Indonesia Manga](https://www.ruenovel.com/2025/04/manga-danshi-dato-omotteita-osananajimi.html)
 - [Gimai Seikatsu Volume 13 Chapter 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/gimai-seikatsu-volume-13-chapter-6.html)
 - [Free Life Fantasy Online Bahasa Indonesia Manga](https://www.ruenovel.com/2025/04/free-life-fantasy-online-bahasa.html)
 - [Jitsu wa Ore, Saikyou deshita? Bahasa Indonesia Manga](https://www.ruenovel.com/2024/01/manga-jitsu-wa-ore-saikyou-deshita.html)
-- [Kusunoki-san wa Koukou Debut ni Shippai Shite Iru Bahasa Indonesia Manga](https://www.ruenovel.com/2025/04/manga-kusunoki-san-wa-koukou-debut-ni.html)
-- [Miyu-chan wa Zutto Tomodachi Bahasa Indonesia Manga](https://www.ruenovel.com/2025/04/manga-miyu-chan-wa-zutto-tomodachi.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
