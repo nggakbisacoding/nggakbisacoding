@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Gimai Seikatsu Another Days 7](https://zerokaito.blogspot.com/2025/04/gimai-seikatsu-another-days-7.html)
+- [Gimai Seikatsu Another Days 6](https://zerokaito.blogspot.com/2025/04/gimai-seikatsu-another-days-6.html)
 - [Kono Naka ni Hitori, Ore no Yome ga Iru Bahasa Indonesia Manga](https://www.ruenovel.com/2025/04/manga-kono-naka-ni-hitori-ore-no-yome.html)
 - [Dokushin Kizoku wa Isekai wo Ouka Suru: Kekkon Shinai Otoko no Yuuga na Ohitori-sama Life  Bahasa Indonesia Manga](https://www.ruenovel.com/2025/04/manga-dokushin-kizoku-wa-isekai-wo-ouka.html)
 - [Danshi dato Omotteita Osananajimi tono Shinkon Seikatsu ga Umaku Ikisugiru Ken ni Tsuite Bahasa Indonesia Manga](https://www.ruenovel.com/2025/04/manga-danshi-dato-omotteita-osananajimi.html)
-- [Gimai Seikatsu Volume 13 Chapter 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/gimai-seikatsu-volume-13-chapter-6.html)
-- [Free Life Fantasy Online Bahasa Indonesia Manga](https://www.ruenovel.com/2025/04/free-life-fantasy-online-bahasa.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
