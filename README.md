@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Kimizero Jilid 10 Bab 1.5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/kimizero-jilid-10-bab-15-bahasa.html)
+- [Kimizero Jilid 10 Bab 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/kimizero-jilid-10-bab-1-bahasa-indonesia.html)
 - [[LN] Saijou no Osewa Jilid 8 Bab 2 Bagian 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/ln-saijou-no-osewa-jilid-8-bab-2-bagian_20.html)
 - [Otonari no Tenshi-sama Volume 11 Chapter 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/otonari-no-tenshi-sama-volume-11_18.html)
 - [Gimai Seikatsu Another Days 7](https://zerokaito.blogspot.com/2025/04/gimai-seikatsu-another-days-7.html)
-- [Gimai Seikatsu Another Days 6](https://zerokaito.blogspot.com/2025/04/gimai-seikatsu-another-days-6.html)
-- [Kono Naka ni Hitori, Ore no Yome ga Iru Bahasa Indonesia Manga](https://www.ruenovel.com/2025/04/manga-kono-naka-ni-hitori-ore-no-yome.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
