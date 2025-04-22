@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Gimai Seikatsu Volume 13 Chapter 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/gimai-seikatsu-volume-13-chapter-7.html)
 - [Backstabbed in a Backwater Dungeon Bahasa Indonesia Download](https://www.ruenovel.com/2025/04/download-backstabbed-in-backwater.html)
 - [Backstabbed in a Backwater Dungeon Bahasa Indonesia Illustrations Volume 10](https://www.ruenovel.com/2025/04/backstabbed-in-backwater-dungeon-ilustrations-volume10.html)
 - [Backstabbed in a Backwater Dungeon Bahasa Indonesia Illustrations Volume 9](https://www.ruenovel.com/2025/04/backstabbed-in-backwater-dungeon-ilustrations-volume9.html)
 - [Backstabbed in a Backwater Dungeon Bahasa Indonesia Illustrations Volume 8](https://www.ruenovel.com/2025/04/backstabbed-in-backwater-dungeon-ilustrations-volume8.html)
-- [Backstabbed in a Backwater Dungeon Bahasa Indonesia Illustrations Volume 7.](https://www.ruenovel.com/2025/04/backstabbed-in-backwater-dungeon-bahasa_22.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
