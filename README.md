@@ -74,7 +74,7 @@
 - [Backstabbed in a Backwater Dungeon Bahasa Indonesia Illustrations Volume 10](https://www.ruenovel.com/2025/04/backstabbed-in-backwater-dungeon-ilustrations-volume10.html)
 - [Backstabbed in a Backwater Dungeon Bahasa Indonesia Illustrations Volume 9](https://www.ruenovel.com/2025/04/backstabbed-in-backwater-dungeon-ilustrations-volume9.html)
 - [Backstabbed in a Backwater Dungeon Bahasa Indonesia Illustrations Volume 8](https://www.ruenovel.com/2025/04/backstabbed-in-backwater-dungeon-ilustrations-volume8.html)
-- [Backstabbed in a Backwater Dungeon Bahasa Indonesia Illustrations Volume 7](https://www.ruenovel.com/2025/04/backstabbed-in-backwater-dungeon-ilustrations-volume7.html)
+- [Backstabbed in a Backwater Dungeon Bahasa Indonesia Illustrations Volume 7.](https://www.ruenovel.com/2025/04/backstabbed-in-backwater-dungeon-bahasa_22.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
