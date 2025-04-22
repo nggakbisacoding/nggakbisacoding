@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
-- [Kimizero Jilid 10 Bab 1.5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/kimizero-jilid-10-bab-15-bahasa.html)
-- [Kimizero Jilid 10 Bab 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/kimizero-jilid-10-bab-1-bahasa-indonesia.html)
-- [[LN] Saijou no Osewa Jilid 8 Bab 2 Bagian 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/ln-saijou-no-osewa-jilid-8-bab-2-bagian_20.html)
-- [Otonari no Tenshi-sama Volume 11 Chapter 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/otonari-no-tenshi-sama-volume-11_18.html)
-- [Gimai Seikatsu Another Days 7](https://zerokaito.blogspot.com/2025/04/gimai-seikatsu-another-days-7.html)
+- [Backstabbed in a Backwater Dungeon Bahasa Indonesia Download](https://www.ruenovel.com/2025/04/download-backstabbed-in-backwater.html)
+- [Backstabbed in a Backwater Dungeon Bahasa Indonesia Illustrations Volume 10](https://www.ruenovel.com/2025/04/backstabbed-in-backwater-dungeon-ilustrations-volume10.html)
+- [Backstabbed in a Backwater Dungeon Bahasa Indonesia Illustrations Volume 9](https://www.ruenovel.com/2025/04/backstabbed-in-backwater-dungeon-ilustrations-volume9.html)
+- [Backstabbed in a Backwater Dungeon Bahasa Indonesia Illustrations Volume 8](https://www.ruenovel.com/2025/04/backstabbed-in-backwater-dungeon-ilustrations-volume8.html)
+- [Backstabbed in a Backwater Dungeon Bahasa Indonesia Illustrations Volume 7](https://www.ruenovel.com/2025/04/backstabbed-in-backwater-dungeon-ilustrations-volume7.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
