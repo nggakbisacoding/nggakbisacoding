@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Ojou-sama no Yousu ga Okashii Volume 1 Chapter Bonus 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/ojou-sama-no-yousu-ga-okashii-volume-1_67.html)
+- [Ojou-sama no Yousu ga Okashii Volume 1 Chapter Bonus 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/ojou-sama-no-yousu-ga-okashii-volume-1_43.html)
+- [Ojou-sama no Yousu ga Okashii Volume 1 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/ojou-sama-no-yousu-ga-okashii-volume-1_49.html)
+- [Ojou-sama no Yousu ga Okashii Volume 1 Chapter 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/ojou-sama-no-yousu-ga-okashii-volume-1_26.html)
 - [Otonari no Tenshi-sama Volume 11 Chapter 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/otonari-no-tenshi-sama-volume-11_25.html)
-- [Gimai Seikatsu Another Days 9](https://zerokaito.blogspot.com/2025/04/gimai-seikatsu-another-days-9.html)
-- [Gimai Seikatsu Another Days 8](https://zerokaito.blogspot.com/2025/04/gimai-seikatsu-another-days-8.html)
-- [Tsuki ga Michibiku Isekai Douchuu Bahasa Indonesia Manga](https://www.ruenovel.com/2024/03/manga-tsuki-ga-michibiku-isekai-douchuu.html)
-- [Clearing an Isekai with the Zero-Believers Goddess – The Weakest Mage among the Classmates Bahasa Indonesia Download](https://www.ruenovel.com/2020/05/clearing-isekai-with-zero-believers-download.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
