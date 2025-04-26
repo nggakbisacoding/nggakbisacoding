@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [[LN] Saijou no Osewa Jilid 8 Bab 3 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/ln-saijou-no-osewa-jilid-8-bab-3-bagian.html)
 - [Ojou-sama no Yousu ga Okashii Volume 1 Chapter Bonus 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/ojou-sama-no-yousu-ga-okashii-volume-1_67.html)
 - [Ojou-sama no Yousu ga Okashii Volume 1 Chapter Bonus 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/ojou-sama-no-yousu-ga-okashii-volume-1_43.html)
 - [Ojou-sama no Yousu ga Okashii Volume 1 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/ojou-sama-no-yousu-ga-okashii-volume-1_49.html)
 - [Ojou-sama no Yousu ga Okashii Volume 1 Chapter 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/ojou-sama-no-yousu-ga-okashii-volume-1_26.html)
-- [Otonari no Tenshi-sama Volume 11 Chapter 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/otonari-no-tenshi-sama-volume-11_25.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
