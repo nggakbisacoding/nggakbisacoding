@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
-- [Manga Cooking With Wild Game Bahasa Indonesia Manga](https://www.ruenovel.com/2025/04/manga-cooking-with-wild-game-bahasa.html)
+- [Keiyaku Shimai Bahasa Indonesia Manga](https://www.ruenovel.com/2025/04/manga-keiyaku-shimai-bahasa-indonesia.html)
+- [Danjo no Yujou wa Seiritsu suru? &lpar;Iya, Shinai!!&rpar; Bahasa Indonesia Manga](https://www.ruenovel.com/2025/04/manga-danjo-no-yujou-wa-seiritsu-suru.html)
+- [Cooking With Wild Game Bahasa Indonesia Manga](https://www.ruenovel.com/2025/04/manga-cooking-with-wild-game-bahasa.html)
 - [[LN] Saijou no Osewa Jilid 8 Bab 3 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/ln-saijou-no-osewa-jilid-8-bab-3-bagian.html)
 - [Ojou-sama no Yousu ga Okashii Volume 1 Chapter Bonus 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/ojou-sama-no-yousu-ga-okashii-volume-1_67.html)
-- [Ojou-sama no Yousu ga Okashii Volume 1 Chapter Bonus 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/ojou-sama-no-yousu-ga-okashii-volume-1_43.html)
-- [Ojou-sama no Yousu ga Okashii Volume 1 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/ojou-sama-no-yousu-ga-okashii-volume-1_49.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
