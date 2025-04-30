@@ -73,8 +73,8 @@
 - [Gimai Seikatsu Volume 13 Chapter 8 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/gimai-seikatsu-volume-13-chapter-8.html)
 - [Kimizero Jilid 10 Bab 2.5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/kimizero-jilid-10-bab-25-bahasa.html)
 - [Kimizero Jilid 10 Bab 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/kimizero-jilid-10-bab-2-bahasa-indonesia.html)
-- [[LN] Saijou no Osewa Jilid 8 Bab 3 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/ln-saijou-no-osewa-jilid-8-bab-3-bagian.html)
-- [Ojou-sama no Yousu ga Okashii Volume 1 Chapter Bonus 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/ojou-sama-no-yousu-ga-okashii-volume-1_67.html)
+- [Keiyaku Shimai Bahasa Indonesia Manga](https://www.ruenovel.com/2025/04/manga-keiyaku-shimai-bahasa-indonesia.html)
+- [Danjo no Yujou wa Seiritsu suru? &lpar;Iya, Shinai!!&rpar; Bahasa Indonesia Manga](https://www.ruenovel.com/2025/04/manga-danjo-no-yujou-wa-seiritsu-suru.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
