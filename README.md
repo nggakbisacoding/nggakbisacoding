@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Gimai Seikatsu Another Days 11](https://zerokaito.blogspot.com/2025/05/gimai-seikatsu-another-days-11.html)
+- [Gimai Seikatsu Another Days 10](https://zerokaito.blogspot.com/2025/05/gimai-seikatsu-another-days-10.html)
 - [Gimai Seikatsu Volume 13 Chapter 8 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/gimai-seikatsu-volume-13-chapter-8.html)
 - [Kimizero Jilid 10 Bab 2.5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/kimizero-jilid-10-bab-25-bahasa.html)
 - [Kimizero Jilid 10 Bab 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/kimizero-jilid-10-bab-2-bahasa-indonesia.html)
-- [Keiyaku Shimai Bahasa Indonesia Manga](https://www.ruenovel.com/2025/04/manga-keiyaku-shimai-bahasa-indonesia.html)
-- [Danjo no Yujou wa Seiritsu suru? &lpar;Iya, Shinai!!&rpar; Bahasa Indonesia Manga](https://www.ruenovel.com/2025/04/manga-danjo-no-yujou-wa-seiritsu-suru.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
