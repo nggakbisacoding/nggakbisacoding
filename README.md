@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Gimai Seikatsu Another Days 12](https://zerokaito.blogspot.com/2025/05/gimai-seikatsu-another-days-12.html)
 - [Otonari no Tenshi-sama Volume 11 Chapter 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/05/otonari-no-tenshi-sama-volume-11.html)
 - [Gimai Seikatsu Another Days 11](https://zerokaito.blogspot.com/2025/05/gimai-seikatsu-another-days-11.html)
 - [Gimai Seikatsu Another Days 10](https://zerokaito.blogspot.com/2025/05/gimai-seikatsu-another-days-10.html)
 - [Gimai Seikatsu Volume 13 Chapter 8 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/gimai-seikatsu-volume-13-chapter-8.html)
-- [Kimizero Jilid 10 Bab 2.5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/04/kimizero-jilid-10-bab-25-bahasa.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
