@@ -72,9 +72,9 @@
 <!-- BLOG-POST-LIST:START -->
 - [Free Life Fantasy Online Bahasa Indonesia Download](https://www.ruenovel.com/2020/09/free-life-fantasy-online-bahasa-download.html)
 - [Free Life Fantasy Online Bahasa Indonesia Illustrations Volume 8](https://www.ruenovel.com/2025/05/free-life-fantasy-online-illustrations-volume8.html)
-- [Free Life Fantasy Online Bahasa Indonesia Illustrations Volume 7](https://www.ruenovel.com/2025/05/free-life-fantasy-online-illustrations-volume7.html)
 - [Free Life Fantasy Online Bahasa Indonesia Illustrations Volume 6](https://www.ruenovel.com/2025/05/free-lifefantasy-online-illustrations-volume6.html)
 - [Gimai Seikatsu Another Days 12](https://zerokaito.blogspot.com/2025/05/gimai-seikatsu-another-days-12.html)
+- [Otonari no Tenshi-sama Volume 11 Chapter 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/05/otonari-no-tenshi-sama-volume-11.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
