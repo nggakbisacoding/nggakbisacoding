@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Gimai Seikatsu Volume 13 Chapter Bonus Bahasa Indonesia](https://zerokaito.blogspot.com/2025/05/gimai-seikatsu-volume-13-chapter-bonus.html)
+- [Gimai Seikatsu Volume 13 Kata Penutup](https://zerokaito.blogspot.com/2025/05/gimai-seikatsu-volume-13-kata-penutup.html)
+- [Gimai Seikatsu Volume 13 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/05/gimai-seikatsu-volume-13-epilog-bahasa.html)
+- [Gimai Seikatsu Volume 13 Chapter 9 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/05/gimai-seikatsu-volume-13-chapter-9.html)
 - [Gimai Seikatsu Another Days Chapter Bonus](https://zerokaito.blogspot.com/2025/05/gimai-seikatsu-another-days-chapter.html)
-- [Gimai Seikatsu Another Days: Sisi Yomiuri Shiori](https://zerokaito.blogspot.com/2025/05/gimai-seikatsu-another-days-sisi.html)
-- [[LN] Saijou no Osewa Jilid 8 Bab 3 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/05/ln-saijou-no-osewa-jilid-8-bab-3-bagian.html)
-- [Free Life Fantasy Online Bahasa Indonesia Download](https://www.ruenovel.com/2020/09/free-life-fantasy-online-bahasa-download.html)
-- [Free Life Fantasy Online Bahasa Indonesia Illustrations Volume 8](https://www.ruenovel.com/2025/05/free-life-fantasy-online-illustrations-volume8.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
