@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [The Fairytale-Like You Goes On the Assault Bahasa Indonesia Manga](https://www.ruenovel.com/2025/05/manga-fairytale-like-you-goes-on.html)
+- [Kikanshita Yuusha no Gojitsudan Bahasa Indonesia  Manga](https://www.ruenovel.com/2025/05/manga-kikanshita-yuusha-no-gojitsudan.html)
+- [Tensei Shitara Dragon no Tamago Datta - Saikyou Igai Mezasa Nee Bahsa Indonesia manga](https://www.ruenovel.com/2025/05/manga-tensei-shitara-dragon-no-tamago.html)
 - [Gimai Seikatsu Volume 13 Chapter Bonus Bahasa Indonesia](https://zerokaito.blogspot.com/2025/05/gimai-seikatsu-volume-13-chapter-bonus.html)
 - [Gimai Seikatsu Volume 13 Kata Penutup](https://zerokaito.blogspot.com/2025/05/gimai-seikatsu-volume-13-kata-penutup.html)
-- [Gimai Seikatsu Volume 13 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/05/gimai-seikatsu-volume-13-epilog-bahasa.html)
-- [Gimai Seikatsu Volume 13 Chapter 9 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/05/gimai-seikatsu-volume-13-chapter-9.html)
-- [Gimai Seikatsu Another Days Chapter Bonus](https://zerokaito.blogspot.com/2025/05/gimai-seikatsu-another-days-chapter.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
