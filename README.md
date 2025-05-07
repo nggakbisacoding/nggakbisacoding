@@ -72,9 +72,9 @@
 <!-- BLOG-POST-LIST:START -->
 - [Kimizero Jilid 10 Bab 3.5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/05/kimizero-jilid-10-bab-35-bahasa.html)
 - [Kimizero Jilid 10 Bab 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/05/kimizero-jilid-10-bab-3-bahasa-indonesia.html)
-- [Gimai Seikatsu Volume 13 Chapter Bonus Bahasa Indonesia](https://zerokaito.blogspot.com/2025/05/gimai-seikatsu-volume-13-chapter-bonus.html)
-- [Gimai Seikatsu Volume 13 Kata Penutup](https://zerokaito.blogspot.com/2025/05/gimai-seikatsu-volume-13-kata-penutup.html)
-- [Gimai Seikatsu Volume 13 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/05/gimai-seikatsu-volume-13-epilog-bahasa.html)
+- [The Fairytale-Like You Goes On the Assault Bahasa Indonesia Manga](https://www.ruenovel.com/2025/05/manga-fairytale-like-you-goes-on.html)
+- [Kikanshita Yuusha no Gojitsudan Bahasa Indonesia  Manga](https://www.ruenovel.com/2025/05/manga-kikanshita-yuusha-no-gojitsudan.html)
+- [Tensei Shitara Dragon no Tamago Datta - Saikyou Igai Mezasa Nee Bahsa Indonesia manga](https://www.ruenovel.com/2025/05/manga-tensei-shitara-dragon-no-tamago.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
