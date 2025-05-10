@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [[LN] Saijou no Osewa Jilid 8 Bab 3 Bagian 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/05/ln-saijou-no-osewa-jilid-8-bab-3-bagian_11.html)
 - [Otonari no Tenshi-sama Volume 11 Chapter 8 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/05/otonari-no-tenshi-sama-volume-11_9.html)
 - [Kimizero Jilid 10 Bab 3.5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/05/kimizero-jilid-10-bab-35-bahasa.html)
 - [Kimizero Jilid 10 Bab 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/05/kimizero-jilid-10-bab-3-bahasa-indonesia.html)
 - [The Fairytale-Like You Goes On the Assault Bahasa Indonesia Manga](https://www.ruenovel.com/2025/05/manga-fairytale-like-you-goes-on.html)
-- [Kikanshita Yuusha no Gojitsudan Bahasa Indonesia  Manga](https://www.ruenovel.com/2025/05/manga-kikanshita-yuusha-no-gojitsudan.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
