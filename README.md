@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Otonari no Tenshi-sama Volume 11 Chapter 9 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/05/otonari-no-tenshi-sama-volume-11_15.html)
 - [Kimizero Jilid 10 Bab 4.5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/05/kimizero-jilid-10-bab-45-bahasa.html)
 - [Kimizero Jilid 10 Bab 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/05/kimizero-jilid-10-bab-4-bahasa-indonesia.html)
 - [[LN] Saijou no Osewa Jilid 8 Bab 3 Bagian 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/05/ln-saijou-no-osewa-jilid-8-bab-3-bagian_11.html)
 - [Otonari no Tenshi-sama Volume 11 Chapter 8 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/05/otonari-no-tenshi-sama-volume-11_9.html)
-- [Kimizero Jilid 10 Bab 3.5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/05/kimizero-jilid-10-bab-35-bahasa.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
