@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
-- [Otonari no Tenshi-sama Volume 11 Chapter 9 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/05/otonari-no-tenshi-sama-volume-11_15.html)
-- [Kimizero Jilid 10 Bab 4.5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/05/kimizero-jilid-10-bab-45-bahasa.html)
-- [Kimizero Jilid 10 Bab 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/05/kimizero-jilid-10-bab-4-bahasa-indonesia.html)
-- [[LN] Saijou no Osewa Jilid 8 Bab 3 Bagian 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/05/ln-saijou-no-osewa-jilid-8-bab-3-bagian_11.html)
-- [Otonari no Tenshi-sama Volume 11 Chapter 8 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/05/otonari-no-tenshi-sama-volume-11_9.html)
+- [Osoto Gohan wo Goisshoni Bahasa Indonesia Manga](https://www.ruenovel.com/2025/05/manga-osoto-gohan-wo-goisshoni-bahasa.html)
+- [Class no Daikirai na Joshi to Kekkon suru Koto ni Natta Bahasa Indonesia Manga](https://www.ruenovel.com/2025/05/manga-kurasu-no-daikirai-na-joshi-to.html)
+- [Kimi wa, Nina Janai Bahasa Indonesia  Manga](https://www.ruenovel.com/2025/05/manga-kimi-wa-nina-janai-bahasa.html)
+- [In a Different World with a Smartphone Bahasa Indonesia Manga](https://www.ruenovel.com/2025/05/manga-in-different-world-with.html)
+- [The Strongest Dull Prince’s Secret Battle for the Throne Bahasa Indonesia Manga](https://www.ruenovel.com/2025/05/manga-strongest-dull-princes-secret.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
