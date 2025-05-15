@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Tanaka ke, Tensei suru Bahasa Indonesia  Manga](https://www.ruenovel.com/2024/07/manga-tanaka-ke-tensei-suru-bahasa.html)
 - [Osoto Gohan wo Goisshoni Bahasa Indonesia Manga](https://www.ruenovel.com/2025/05/manga-osoto-gohan-wo-goisshoni-bahasa.html)
 - [Class no Daikirai na Joshi to Kekkon suru Koto ni Natta Bahasa Indonesia Manga](https://www.ruenovel.com/2025/05/manga-kurasu-no-daikirai-na-joshi-to.html)
 - [Kimi wa, Nina Janai Bahasa Indonesia  Manga](https://www.ruenovel.com/2025/05/manga-kimi-wa-nina-janai-bahasa.html)
 - [In a Different World with a Smartphone Bahasa Indonesia Manga](https://www.ruenovel.com/2025/05/manga-in-different-world-with.html)
-- [The Strongest Dull Prince’s Secret Battle for the Throne Bahasa Indonesia Manga](https://www.ruenovel.com/2025/05/manga-strongest-dull-princes-secret.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
