@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Majo no Tabitabi Bahasa Indonesia Illustrations Volume 15](https://www.ruenovel.com/2025/05/majo-no-tabitabi-illustrations-volume15.html)
 - [I Was Kicked Out of My House, but I’m Living Well Now ~ A Comfortable and Convenient Second Life With Cheat-Like Magic and Previous Life Knowledge! Bahasa Indonesia Illustrations Volume 2](https://www.ruenovel.com/2025/05/i-was-kicked-out-of-my-house-but-illustrations-volume2.html)
 - [I Was Kicked Out of My House, but I’m Living Well Now ~ A Comfortable and Convenient Second Life With Cheat-Like Magic and Previous Life Knowledge! Bahasa Indonesia Illustrations Volume 1](https://www.ruenovel.com/2025/05/i-was-kicked-out-of-my-house-but-illustrations-volume1.html)
 - [I Was Kicked Out of My House, but I’m Living Well Now ~ A Comfortable and Convenient Second Life With Cheat-Like Magic and Previous Life Knowledge! Bahasa Indonesia](https://www.ruenovel.com/2025/05/i-was-kicked-out-of-my-house-but-im.html)
 - [Tsuki ga Michibiku Isekai Douchuu Bahasa Indonesia Illustrations Volume 6](https://www.ruenovel.com/2025/05/tsuki-ga-michibiku-isekai-douchuu-illustrations-volume6.html)
-- [Tsuki ga Michibiku Isekai Douchuu Bahasa Indonesia Illustrations Volume 5](https://www.ruenovel.com/2025/05/tsuki-ga-michibiku-isekai-douchuu-illustrations-volume5.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
