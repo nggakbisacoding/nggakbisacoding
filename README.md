@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
-- [Sekai Saikyou no Shitsuji Bahasa Indonesia  Manga](https://www.ruenovel.com/2025/05/manga-sekai-saikyou-no-shitsuji-bahasa.html)
-- [Tanaka ke, Tensei suru Bahasa Indonesia  Manga](https://www.ruenovel.com/2024/07/manga-tanaka-ke-tensei-suru-bahasa.html)
-- [Osoto Gohan wo Goisshoni Bahasa Indonesia Manga](https://www.ruenovel.com/2025/05/manga-osoto-gohan-wo-goisshoni-bahasa.html)
-- [Class no Daikirai na Joshi to Kekkon suru Koto ni Natta Bahasa Indonesia Manga](https://www.ruenovel.com/2025/05/manga-kurasu-no-daikirai-na-joshi-to.html)
-- [Kimi wa, Nina Janai Bahasa Indonesia  Manga](https://www.ruenovel.com/2025/05/manga-kimi-wa-nina-janai-bahasa.html)
+- [I Was Kicked Out of My House, but I’m Living Well Now ~ A Comfortable and Convenient Second Life With Cheat-Like Magic and Previous Life Knowledge! Bahasa Indonesia Illustrations Volume 2](https://www.ruenovel.com/2025/05/i-was-kicked-out-of-my-house-but-illustrations-volume2.html)
+- [I Was Kicked Out of My House, but I’m Living Well Now ~ A Comfortable and Convenient Second Life With Cheat-Like Magic and Previous Life Knowledge! Bahasa Indonesia Illustrations Volume 1](https://www.ruenovel.com/2025/05/i-was-kicked-out-of-my-house-but-illustrations-volume1.html)
+- [I Was Kicked Out of My House, but I’m Living Well Now ~ A Comfortable and Convenient Second Life With Cheat-Like Magic and Previous Life Knowledge! Bahasa Indonesia](https://www.ruenovel.com/2025/05/i-was-kicked-out-of-my-house-but-im.html)
+- [Tsuki ga Michibiku Isekai Douchuu Bahasa Indonesia Illustrations Volume 6](https://www.ruenovel.com/2025/05/tsuki-ga-michibiku-isekai-douchuu-illustrations-volume6.html)
+- [Tsuki ga Michibiku Isekai Douchuu Bahasa Indonesia Illustrations Volume 5](https://www.ruenovel.com/2025/05/tsuki-ga-michibiku-isekai-douchuu-illustrations-volume5.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
