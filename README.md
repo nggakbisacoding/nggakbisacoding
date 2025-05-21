@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Otonari no Tenshi-sama Volume 11 Chapter Ekstra Bahasa Indonesia](https://zerokaito.blogspot.com/2025/05/otonari-no-tenshi-sama-volume-11_70.html)
+- [Otonari no Tenshi-sama Volume 11 Chapter 10 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/05/otonari-no-tenshi-sama-volume-11_22.html)
 - [Kimizero Jilid 10 Epilog [TAMAT] Bahasa Indonesia](https://zerokaito.blogspot.com/2025/05/kimizero-jilid-10-epilog-tamat-bahasa.html)
 - [Kimizero Jilid 10 Bab 5.5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/05/kimizero-jilid-10-bab-55-bahasa.html)
 - [Kimizero Jilid 10 Bab 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/05/kimizero-jilid-10-bab-5-bahasa-indonesia.html)
-- [My Stepsister is My Ex-Girlfriend Bahasa Indonesia Download](https://www.ruenovel.com/2020/08/my-stepsister-is-my-ex-girlfriend-bahasa-indonesia-download.html)
-- [Tsuki ga Michibiku Isekai Douchuu Bahasa Indonesia Download](https://www.ruenovel.com/2025/02/tsuki-ga-michibiku-isekai-douchuu.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
