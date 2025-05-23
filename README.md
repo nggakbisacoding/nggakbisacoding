@@ -73,8 +73,8 @@
 - [Tensei Shitara dai Nana Ouji Dattanode, Kimamani Majutsu o Kiwamemasu Bahasa Indonesia  Manga](https://www.ruenovel.com/2025/05/manga-tensei-shitara-dai-nana-ouji.html)
 - [Shinsou no Raputa Bahasa Indonesia Manga](https://www.ruenovel.com/2025/05/manga-shinsou-no-raputa-bahasa-indonesia.html)
 - [Ogami Tsumiki to Kinichijou Bahasa Indonesia Manga](https://www.ruenovel.com/2025/05/manga-ogami-tsumiki-to-kinichijou.html)
-- [Ochikobore Datta Ani ga Jitsu wa Saikyou Bahasa Indonesia Manga](https://www.ruenovel.com/2025/05/manga-ochikobore-datta-ani-ga-jitsu-wa.html)
 - [Kakkou no Iinazuke Bahasa Indonesia Manga](https://www.ruenovel.com/2024/03/manga-kakkou-no-iinazuke-bahasa.html)
+- [Ikenie ni Natta Ore ga Nazeka Jashin wo Horoboshite Shimatta Ken Bahasa Indonesia Manga](https://www.ruenovel.com/2025/05/manga-ikenie-ni-natta-ore-ga-nazeka.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
