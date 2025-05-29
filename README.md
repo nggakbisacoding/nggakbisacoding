@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Jinsei Gyakuten Volume 1 Chapter 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/05/jinsei-gyakuten-volume-1-chapter-1.html)
+- [Jinsei Gyakuten Volume 1 Ilustrasi](https://zerokaito.blogspot.com/2025/05/jinsei-gyakuten-volume-1-ilustrasi.html)
+- [Jinsei Gyakuten Uwaki sare, Enzai wo Kiserareta Ore ga, Gakuen Ichi no Bishoujo ni Natsuka reru Bahasa Indonesia](https://zerokaito.blogspot.com/2025/05/jinsei-gyakuten-uwaki-sare-enzai-wo.html)
 - [Ojou-sama no Yousu ga Vol 2 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/05/ojou-sama-no-yousu-ga-vol-2-prolog.html)
 - [Ojou-sama no Yousu ga Volume 2 Ilustrasi](https://zerokaito.blogspot.com/2025/05/ojou-sama-no-yousu-ga-volume-2-ilustrasi.html)
-- [Bad-end go no Heroine Vol 2 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/05/bad-end-go-no-heroine-vol-2-prolog.html)
-- [Bad-end go no Heroine Volume 2 Ilustrasi](https://zerokaito.blogspot.com/2025/05/bad-end-go-no-heroine-volume-2-ilustrasi.html)
-- [[LN] Saijou no Osewa Jilid 8 Bab 3 Bagian 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/05/ln-saijou-no-osewa-jilid-8-bab-3-bagian_25.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
