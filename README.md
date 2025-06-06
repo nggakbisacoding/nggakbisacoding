@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Kajiya de Hajimeru Isekai Slow Life Bahasa Indonesia Manga](https://www.ruenovel.com/2025/06/manga-kajiya-de-hajimeru-isekai-slow.html)
 - [Kaette kudasai! Akutsu-san Bahasa Indonesia Manga](https://www.ruenovel.com/2025/06/manga-kaette-kudasai-akutsu-san-bahasa.html)
 - [Garbage Brave: Isekai Ni Shoukan Sare Suterareta Yuusha No Fukushuu Monogatari Bahasa Indonesia Manga](https://www.ruenovel.com/2025/06/manga-garbage-brave-isekai-ni-shoukan.html)
 - [Gakuen Idol Master Bahasa Indonesia Manga](https://www.ruenovel.com/2025/06/manga-gakuen-idolmster-gold-rush-bahasa.html)
 - [Easygoing Territory Defense by the Optimistic Lord Bahasa Indonesia Manga](https://www.ruenovel.com/2025/06/easygoing-territory-defense-by.html)
-- [Dioti Manual ~Kamisamatachi no Ren&#39;ai Daikou~ Bahasa Indonesia Manga](https://www.ruenovel.com/2025/06/manga-dioti-manual-kamisamatachi-no.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
