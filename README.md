@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
-- [Jinsei Gyakuten Volume 1 Chapter 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/06/jinsei-gyakuten-volume-1-chapter-2.html)
-- [Ojou-sama no Yousu ga Vol 2 Chapter 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/06/ojou-sama-no-yousu-ga-vol-2-chapter-1.html)
-- [Bad-end go no Heroine Vol 2 Chapter 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/06/bad-end-go-no-heroine-vol-2-chapter-1.html)
-- [[LN] Saijou no Osewa Jilid 8 Bab 3 Bagian 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/06/ln-saijou-no-osewa-jilid-8-bab-3-bagian.html)
-- [Jinsei Gyakuten Volume 1 Chapter 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/05/jinsei-gyakuten-volume-1-chapter-1.html)
+- [Kaette kudasai! Akutsu-san Bahasa Indonesia Manga](https://www.ruenovel.com/2025/06/manga-kaette-kudasai-akutsu-san-bahasa.html)
+- [Garbage Brave: Isekai Ni Shoukan Sare Suterareta Yuusha No Fukushuu Monogatari Bahasa Indonesia Manga](https://www.ruenovel.com/2025/06/manga-garbage-brave-isekai-ni-shoukan.html)
+- [Gakuen Idol Master Bahasa Indonesia Manga](https://www.ruenovel.com/2025/06/manga-gakuen-idolmster-gold-rush-bahasa.html)
+- [Easygoing Territory Defense by the Optimistic Lord Bahasa Indonesia Manga](https://www.ruenovel.com/2025/06/easygoing-territory-defense-by.html)
+- [Dioti Manual ~Kamisamatachi no Ren&#39;ai Daikou~ Bahasa Indonesia Manga](https://www.ruenovel.com/2025/06/manga-dioti-manual-kamisamatachi-no.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
