@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Mushoku Tensei - Isekai Ittara Honki Dasu Bahasa Indonesia Manga](https://www.ruenovel.com/2025/06/manga-mushoku-tensei-isekai-ittara.html)
 - [Mom, Please Don&#39;t Come Adventuring with Me! Bahasa Indonesia Manga](https://www.ruenovel.com/2025/03/manga-mom-please-dont-come-adventuring.html)
 - [Kajiya de Hajimeru Isekai Slow Life Bahasa Indonesia Manga](https://www.ruenovel.com/2025/06/manga-kajiya-de-hajimeru-isekai-slow.html)
 - [Kaette kudasai! Akutsu-san Bahasa Indonesia Manga](https://www.ruenovel.com/2025/06/manga-kaette-kudasai-akutsu-san-bahasa.html)
 - [Garbage Brave: Isekai Ni Shoukan Sare Suterareta Yuusha No Fukushuu Monogatari Bahasa Indonesia Manga](https://www.ruenovel.com/2025/06/manga-garbage-brave-isekai-ni-shoukan.html)
-- [Gakuen Idol Master Bahasa Indonesia Manga](https://www.ruenovel.com/2025/06/manga-gakuen-idolmster-gold-rush-bahasa.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
