@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Shinigami ni Sodaterareta Shoujo wa Shikkoku no Tsurugi wo Mune ni Idaku Bahasa Indonesia Manga](https://www.ruenovel.com/2025/06/manga-shinigami-ni-sodaterareta-shoujo.html)
+- [Shimotsuki-san wa Mobu ga Suki ~Hitomishiri na Kanojo wa Ore ni Dake Dere Amai~ Bahasa Indonesia Manga](https://www.ruenovel.com/2025/06/manga-shimotsuki-san-wa-mobu-ga-suki.html)
 - [[LN] Saijou no Osewa Jilid 8 Bab 4 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/06/ln-saijou-no-osewa-jilid-8-bab-4-bagian.html)
 - [Ore ni Trauma wo Ataeta Joshitachi ga Chirachira Mitekuru kedo, Zannen desu ga Teokure desu Bahasa Indonesia Manga](https://www.ruenovel.com/2025/06/manga-ore-ni-trauma-wo-ataeta.html)
 - [Ore no Iinazuke ni Natta Jimiko, Ie de wa Kawaii Shika nai Bahasa Indonesia manga](https://www.ruenovel.com/2025/06/manga-ore-no-iinazuke-ni-natta-jimiko.html)
-- [Naze Boku no Sekai wo Dare mo Oboeteinainoka? Bahasa Indonesia Manga](https://www.ruenovel.com/2024/04/manga-naze-boku-no-sekai-wo-dare-mo.html)
-- [Mushoku Tensei - Isekai Ittara Honki Dasu Bahasa Indonesia Manga](https://www.ruenovel.com/2025/06/manga-mushoku-tensei-isekai-ittara.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
