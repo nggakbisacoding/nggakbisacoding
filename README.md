@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Ojou-sama no Yousu ga Vol 2 Chapter 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/06/ojou-sama-no-yousu-ga-vol-2-chapter-2.html)
 - [Otonari no Tenshi-sama ni Itsu no Ma ni ka Dame Ningen ni Sareteita Ken Bahasa Indonesia Download](https://www.ruenovel.com/2020/05/otonari-no-tenshi-sama-ni-itsu-no-ma-ni.html)
 - [Bad-end go no Heroine Vol 2 Chapter 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/06/bad-end-go-no-heroine-vol-2-chapter-2.html)
 - [The Inferior Magic Swordsman Bahasa Indonesia manga](https://www.ruenovel.com/2025/06/manga-inferior-magic-swordsman-bahasa.html)
 - [Shinigami ni Sodaterareta Shoujo wa Shikkoku no Tsurugi wo Mune ni Idaku Bahasa Indonesia Manga](https://www.ruenovel.com/2025/06/manga-shinigami-ni-sodaterareta-shoujo.html)
-- [Shimotsuki-san wa Mobu ga Suki ~Hitomishiri na Kanojo wa Ore ni Dake Dere Amai~ Bahasa Indonesia Manga](https://www.ruenovel.com/2025/06/manga-shimotsuki-san-wa-mobu-ga-suki.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
