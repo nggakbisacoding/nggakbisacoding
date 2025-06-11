@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Jinsei Gyakuten Volume 1 Chapter 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/06/jinsei-gyakuten-volume-1-chapter-3.html)
 - [Is it Tough Being a Friend? Bahasa Indonesia Prolog Volume 7](https://www.ruenovel.com/2025/06/is-it-tough-being-friend-bahasa.html)
 - [Ojou-sama no Yousu ga Vol 2 Chapter 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/06/ojou-sama-no-yousu-ga-vol-2-chapter-2.html)
 - [Otonari no Tenshi-sama ni Itsu no Ma ni ka Dame Ningen ni Sareteita Ken Bahasa Indonesia Download](https://www.ruenovel.com/2020/05/otonari-no-tenshi-sama-ni-itsu-no-ma-ni.html)
 - [Bad-end go no Heroine Vol 2 Chapter 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/06/bad-end-go-no-heroine-vol-2-chapter-2.html)
-- [The Inferior Magic Swordsman Bahasa Indonesia manga](https://www.ruenovel.com/2025/06/manga-inferior-magic-swordsman-bahasa.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
