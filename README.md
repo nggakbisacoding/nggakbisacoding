@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Is it Tough Being a Friend? Bahasa Indonesia Penutup  Volume 7](https://www.ruenovel.com/2025/06/is-it-tough-being-friend-bahasa_54.html)
+- [Is it Tough Being a Friend? Bahasa Indonesia Epilog Volume 7](https://www.ruenovel.com/2025/06/is-it-tough-being-friend-bahasa_13.html)
 - [Is it Tough Being a Friend? Bahasa Indonesia Chapter 4  Volume 7](https://www.ruenovel.com/2025/06/is-it-tough-being-friend-bahasa_93.html)
 - [Is it Tough Being a Friend? Bahasa Indonesia Chapter 3  Volume 7](https://www.ruenovel.com/2025/06/is-it-tough-being-friend-bahasa_98.html)
 - [Is it Tough Being a Friend? Bahasa Indonesia Chapter 2  Volume 7](https://www.ruenovel.com/2025/06/is-it-tough-being-friend-bahasa_41.html)
-- [Is it Tough Being a Friend? Bahasa Indonesia Chapter 1  Volume 7](https://www.ruenovel.com/2025/06/is-it-tough-being-friend-bahasa_12.html)
-- [Jinsei Gyakuten Volume 1 Chapter 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/06/jinsei-gyakuten-volume-1-chapter-3.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
