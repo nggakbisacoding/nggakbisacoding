@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Backstabbed in a Backwater Dungeon Bahasa Indonesia Manga](https://www.ruenovel.com/2025/06/manga-backstabbed-in-backwater-dungeon.html)
+- [Amagami-san Chi no Enmusubi Bahasa Indonesia Manga](https://www.ruenovel.com/2024/03/manga-amagami-san-chi-no-enmusubi.html)
 - [[LN] Saijou no Osewa Jilid 8 Bab 4 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/06/ln-saijou-no-osewa-jilid-8-bab-4-bagian_15.html)
 - [Is it Tough Being a Friend? Bahasa Indonesia Penutup  Volume 7](https://www.ruenovel.com/2025/06/is-it-tough-being-friend-bahasa_54.html)
 - [Is it Tough Being a Friend? Bahasa Indonesia Epilog Volume 7](https://www.ruenovel.com/2025/06/is-it-tough-being-friend-bahasa_13.html)
-- [Is it Tough Being a Friend? Bahasa Indonesia Chapter 4  Volume 7](https://www.ruenovel.com/2025/06/is-it-tough-being-friend-bahasa_93.html)
-- [Is it Tough Being a Friend? Bahasa Indonesia Chapter 3  Volume 7](https://www.ruenovel.com/2025/06/is-it-tough-being-friend-bahasa_98.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
