@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Ojou-sama no Yousu ga Vol 2 Chapter 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/06/ojou-sama-no-yousu-ga-vol-2-chapter-3.html)
 - [Bad-end go no Heroine Vol 2 Chapter 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/06/bad-end-go-no-heroine-vol-2-chapter-3.html)
 - [Yagate Kimi ni Naru Bahasa Indonesia Manga](https://www.ruenovel.com/2025/06/manga-yagate-kimi-ni-naru-bahasa.html)
 - [Osananajimi Kanojo no Morahara ga Hidoin de Zetsuen Sengen shite Yatta Bahasa Indonesia Manga](https://www.ruenovel.com/2025/06/manga-osananajimi-kanojo-no-morahara-ga.html)
 - [Isekai ni Otosare… Jouka wa Kihon! Bahasa Indonesia Manga](https://www.ruenovel.com/2024/06/manga-isekai-ni-otosare-jouka-wa-kihon.html)
-- [Backstabbed in a Backwater Dungeon Bahasa Indonesia Manga](https://www.ruenovel.com/2025/06/manga-backstabbed-in-backwater-dungeon.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
