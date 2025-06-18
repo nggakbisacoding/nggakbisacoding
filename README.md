@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Aru Hi, Totsuzen Gal no Iinazuke ga Dekita Bahasa Indonesia Light Novel PDF](https://www.ruenovel.com/2025/06/LN-aru-hi-totsuzen-gal-no-iinazuke-ga.html)
 - [Ojou-sama no Yousu ga Vol 2 Chapter 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/06/ojou-sama-no-yousu-ga-vol-2-chapter-3.html)
 - [Bad-end go no Heroine Vol 2 Chapter 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/06/bad-end-go-no-heroine-vol-2-chapter-3.html)
+- [Tsuruko Returns the Favor Bahasa Indonesia manga.](https://www.ruenovel.com/2025/06/tsuruko-returns-favor-bahasa-indonesia.html)
 - [Yagate Kimi ni Naru Bahasa Indonesia Manga](https://www.ruenovel.com/2025/06/manga-yagate-kimi-ni-naru-bahasa.html)
-- [Osananajimi Kanojo no Morahara ga Hidoin de Zetsuen Sengen shite Yatta Bahasa Indonesia Manga](https://www.ruenovel.com/2025/06/manga-osananajimi-kanojo-no-morahara-ga.html)
-- [Isekai ni Otosare… Jouka wa Kihon! Bahasa Indonesia Manga](https://www.ruenovel.com/2024/06/manga-isekai-ni-otosare-jouka-wa-kihon.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
