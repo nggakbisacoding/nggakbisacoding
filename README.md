@@ -71,10 +71,10 @@
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
 - [Aru Hi, Totsuzen Gal no Iinazuke ga Dekita Bahasa Indonesia Light Novel PDF](https://www.ruenovel.com/2025/06/LN-aru-hi-totsuzen-gal-no-iinazuke-ga.html)
+- [Nageki no Bourei wa Intai Shitai Bahasa Indonesia Download](https://www.ruenovel.com/2025/03/nageki-no-bourei-wa-intai-shitai-download.html)
+- [Is it Tough Being a Friend? Bahasa Indonesia Download](https://www.ruenovel.com/2020/02/is-it-tough-being-friend-bahasa.html)
+- [Majo no Tabitabi Bahasa Indonesia Download](https://www.ruenovel.com/2020/04/majo-no-tabitabi-bahasa-indonesia.html)
 - [Ojou-sama no Yousu ga Vol 2 Chapter 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/06/ojou-sama-no-yousu-ga-vol-2-chapter-3.html)
-- [Bad-end go no Heroine Vol 2 Chapter 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/06/bad-end-go-no-heroine-vol-2-chapter-3.html)
-- [Tsuruko Returns the Favor Bahasa Indonesia manga.](https://www.ruenovel.com/2025/06/tsuruko-returns-favor-bahasa-indonesia.html)
-- [Yagate Kimi ni Naru Bahasa Indonesia Manga](https://www.ruenovel.com/2025/06/manga-yagate-kimi-ni-naru-bahasa.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
