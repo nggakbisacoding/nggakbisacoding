@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Kokou no Denpa Bishoujo Volume 1 Chapter 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/06/kokou-no-denpa-bishoujo-volume-1_20.html)
+- [Kokou no Denpa Bishoujo Volume 1 Ilustrasi](https://zerokaito.blogspot.com/2025/06/kokou-no-denpa-bishoujo-volume-1.html)
+- [Kokou no Denpa Bishoujo to Koi de Tsunagattara giga Omoi Bahasa Indonesia](https://zerokaito.blogspot.com/2025/06/kokou-no-denpa-bishoujo-to-koi-de.html)
 - [Jinsei Gyakuten Volume 1 Chapter 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/06/jinsei-gyakuten-volume-1-chapter-4.html)
 - [Aru Hi, Totsuzen Gal no Iinazuke ga Dekita Bahasa Indonesia Light Novel PDF](https://www.ruenovel.com/2025/06/LN-aru-hi-totsuzen-gal-no-iinazuke-ga.html)
-- [Nageki no Bourei wa Intai Shitai Bahasa Indonesia Download](https://www.ruenovel.com/2025/03/nageki-no-bourei-wa-intai-shitai-download.html)
-- [Is it Tough Being a Friend? Bahasa Indonesia Download](https://www.ruenovel.com/2020/02/is-it-tough-being-friend-bahasa.html)
-- [Majo no Tabitabi Bahasa Indonesia Download](https://www.ruenovel.com/2020/04/majo-no-tabitabi-bahasa-indonesia.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
