@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [[LN] Saijou no Osewa Jilid 8 Bab 4 Bagian 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/06/ln-saijou-no-osewa-jilid-8-bab-4-bagian_22.html)
 - [Kokou no Denpa Bishoujo Volume 1 Chapter 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/06/kokou-no-denpa-bishoujo-volume-1_20.html)
 - [Kokou no Denpa Bishoujo Volume 1 Ilustrasi](https://zerokaito.blogspot.com/2025/06/kokou-no-denpa-bishoujo-volume-1.html)
 - [Kokou no Denpa Bishoujo to Koi de Tsunagattara giga Omoi Bahasa Indonesia](https://zerokaito.blogspot.com/2025/06/kokou-no-denpa-bishoujo-to-koi-de.html)
 - [Jinsei Gyakuten Volume 1 Chapter 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/06/jinsei-gyakuten-volume-1-chapter-4.html)
-- [Aru Hi, Totsuzen Gal no Iinazuke ga Dekita Bahasa Indonesia Light Novel PDF](https://www.ruenovel.com/2025/06/LN-aru-hi-totsuzen-gal-no-iinazuke-ga.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
