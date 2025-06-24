@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Ojou-sama no Yousu ga Vol 2 Chapter 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/06/ojou-sama-no-yousu-ga-vol-2-chapter-4.html)
 - [Bad-end go no Heroine Vol 2 Chapter 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/06/bad-end-go-no-heroine-vol-2-chapter-4.html)
 - [Roshidere Jilid 10 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/06/roshidere-jilid-10-prolog-bahasa.html)
 - [Roshidere Jilid 10 Ilustrasi](https://zerokaito.blogspot.com/2025/06/roshidere-jilid-10-ilustrasi.html)
 - [[LN] Saijou no Osewa Jilid 8 Bab 4 Bagian 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/06/ln-saijou-no-osewa-jilid-8-bab-4-bagian_22.html)
-- [Kokou no Denpa Bishoujo Volume 1 Chapter 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/06/kokou-no-denpa-bishoujo-volume-1_20.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
