@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Otonari no Tenshi-sama ni Itsu no Ma ni ka Dame Ningen ni Sareteita Ken Bahasa Indonesia Manga](https://www.ruenovel.com/2024/06/manga-otonari-no-tenshi-sama-ni-itsu-no.html)
+- [Mayonaka Heart Tune Bahasa Indonesia Manga](https://www.ruenovel.com/2025/06/manga-mayonaka-heart-tune-bahasa.html)
 - [Kanojo ni Uwakisareteita Ore ga, Koakuma na Kouhai ni Natsukareteimasu Bahasa Indonesia Manga](https://www.ruenovel.com/2025/01/manga-kanojo-ni-uwakisareteita-ore-ga.html)
 - [Jitsu wa Ore, Saikyou deshita? Bahasa Indonesia Manga](https://www.ruenovel.com/2024/01/manga-jitsu-wa-ore-saikyou-deshita.html)
 - [Isekai de Haishin Katsudou wo Shitara Tairyou no Yandere Shinja wo Umidashite Shimatta Ken Bahasa Indonesia Manga](https://www.ruenovel.com/2025/06/manga-sekai-de-haishin-katsudou-wo.html)
-- [Gakuen Mono no Otome Game no Sekai ni Tensei Shita kedo, Cheat-mochi no Haikei Danshi Seito datta you desu Bahasa Indonesia Manga](https://www.ruenovel.com/2025/06/manga-gakuen-mono-no-otome-game-no.html)
-- [Gal Yome no Himitsu Bahasa Indonesia Manga](https://www.ruenovel.com/2025/06/manga-gal-yome-no-himitsu-bahasa.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
