@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [[LN] Saijou no Osewa Jilid 8 Bab SS Bahasa Indonesia](https://zerokaito.blogspot.com/2025/06/ln-saijou-no-osewa-jilid-8-bab-ss.html)
+- [[LN] Saijou no Osewa Jilid 8 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/06/ln-saijou-no-osewa-jilid-8-epilog.html)
+- [[LN] Saijou no Osewa Jilid 8 Bab 4 Bagian 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/06/ln-saijou-no-osewa-jilid-8-bab-4-bagian_28.html)
 - [Otonari no Tenshi-sama ni Itsu no Ma ni ka Dame Ningen ni Sareteita Ken Bahasa Indonesia Manga](https://www.ruenovel.com/2024/06/manga-otonari-no-tenshi-sama-ni-itsu-no.html)
 - [Mayonaka Heart Tune Bahasa Indonesia Manga](https://www.ruenovel.com/2025/06/manga-mayonaka-heart-tune-bahasa.html)
-- [Jitsu wa Ore, Saikyou deshita? Bahasa Indonesia Manga](https://www.ruenovel.com/2024/01/manga-jitsu-wa-ore-saikyou-deshita.html)
-- [Isekai de Haishin Katsudou wo Shitara Tairyou no Yandere Shinja wo Umidashite Shimatta Ken Bahasa Indonesia Manga](https://www.ruenovel.com/2025/06/manga-sekai-de-haishin-katsudou-wo.html)
-- [Gal Yome no Himitsu Bahasa Indonesia Manga](https://www.ruenovel.com/2025/06/manga-gal-yome-no-himitsu-bahasa.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
