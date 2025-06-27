@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
-- [Roshidere Jilid 10 Chapter 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/06/roshidere-jilid-10-chapter-1-bahasa.html)
-- [Jinsei Gyakuten Volume 1 Chapter 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/06/jinsei-gyakuten-volume-1-chapter-5.html)
-- [Ojou-sama no Yousu ga Vol 2 Chapter 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/06/ojou-sama-no-yousu-ga-vol-2-chapter-4.html)
-- [Bad-end go no Heroine Vol 2 Chapter 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/06/bad-end-go-no-heroine-vol-2-chapter-4.html)
-- [Roshidere Jilid 10 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/06/roshidere-jilid-10-prolog-bahasa.html)
+- [Kanojo ni Uwakisareteita Ore ga, Koakuma na Kouhai ni Natsukareteimasu Bahasa Indonesia Manga](https://www.ruenovel.com/2025/01/manga-kanojo-ni-uwakisareteita-ore-ga.html)
+- [Jitsu wa Ore, Saikyou deshita? Bahasa Indonesia Manga](https://www.ruenovel.com/2024/01/manga-jitsu-wa-ore-saikyou-deshita.html)
+- [Isekai de Haishin Katsudou wo Shitara Tairyou no Yandere Shinja wo Umidashite Shimatta Ken Bahasa Indonesia Manga](https://www.ruenovel.com/2025/06/manga-sekai-de-haishin-katsudou-wo.html)
+- [Gakuen Mono no Otome Game no Sekai ni Tensei Shita kedo, Cheat-mochi no Haikei Danshi Seito datta you desu Bahasa Indonesia Manga](https://www.ruenovel.com/2025/06/manga-gakuen-mono-no-otome-game-no.html)
+- [Gal Yome no Himitsu Bahasa Indonesia Manga](https://www.ruenovel.com/2025/06/manga-gal-yome-no-himitsu-bahasa.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
