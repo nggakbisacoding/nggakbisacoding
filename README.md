@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Gimai Seikatsu Volume 14 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/06/gimai-seikatsu-volume-14-prolog-bahasa.html)
+- [Gimai Seikatsu Volume 14 Ilustrasi](https://zerokaito.blogspot.com/2025/06/gimai-seikatsu-volume-14-ilustrasi.html)
 - [Roshidere Jilid 10 Chapter 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/06/roshidere-jilid-10-chapter-2-bahasa.html)
 - [Kanojo ni Uwakisareteita Ore ga, Koakuma na Kouhai ni Natsukareteimasu Bahasa Indonesia Manga.](https://www.ruenovel.com/2025/06/kanojo-ni-uwakisareteita-ore-ga-koakuma.html)
 - [[LN] Saijou no Osewa Jilid 8 Bab SS Bahasa Indonesia](https://zerokaito.blogspot.com/2025/06/ln-saijou-no-osewa-jilid-8-bab-ss.html)
-- [[LN] Saijou no Osewa Jilid 8 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/06/ln-saijou-no-osewa-jilid-8-epilog.html)
-- [[LN] Saijou no Osewa Jilid 8 Bab 4 Bagian 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/06/ln-saijou-no-osewa-jilid-8-bab-4-bagian_28.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
