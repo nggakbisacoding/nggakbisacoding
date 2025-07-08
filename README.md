@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Jinsei Gyakuten Volume 1 Chapter 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/jinsei-gyakuten-volume-1-chapter-7.html)
 - [Bad-end go no Heroine Vol 2 Chapter 6.5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/bad-end-go-no-heroine-vol-2-chapter-65.html)
 - [Bad-end go no Heroine Vol 2 Chapter 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/bad-end-go-no-heroine-vol-2-chapter-6.html)
 - [Kokou no Denpa Bishoujo Volume 1 Chapter 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/kokou-no-denpa-bishoujo-volume-1.html)
 - [Roshidere Jilid 10 Chapter 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/roshidere-jilid-10-chapter-3-bahasa.html)
-- [Omaera Hayaku Kekkon Vol 1 Chapter 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/omaera-hayaku-kekkon-vol-1-chapter-1.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
