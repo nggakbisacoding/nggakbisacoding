@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
-- [Gimai Seikatsu Volume 14 Chapter 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/gimai-seikatsu-volume-14-chapter-1.html)
-- [A Demon Lord’s Tale: Dungeons, Monster Girls, and Heartwarming Bliss Bahasa Indonesia Manga](https://www.ruenovel.com/2024/01/mangaa-demon-lords-tale-dungeons-monste.html)
-- [Ojou-sama no Yousu ga Vol 2 Chapter 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/ojou-sama-no-yousu-ga-vol-2-chapter-6.html)
-- [Jinsei Gyakuten Volume 1 Chapter 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/jinsei-gyakuten-volume-1-chapter-7.html)
-- [Bad-end go no Heroine Vol 2 Chapter 6.5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/bad-end-go-no-heroine-vol-2-chapter-65.html)
+- [Tsuihou sareta Tensei Juukishi wa Game Chishiki de Musou suru Bahasa Indonesia Manga](https://www.ruenovel.com/2024/05/manga-tsuihou-sareta-tensei-juukishi-wa.html)
+- [Tokidoki Bosotto Roshiago de Dereru Tonari no Alya-san Bahasa Indonesia Manga](https://www.ruenovel.com/2024/03/manga-tokidoki-bosotto-roshiago-de.html)
+- [Shiunji-ke no Kodomotachi Bahasa Indonesia Manga](https://www.ruenovel.com/2025/07/manga-shiunji-ke-no-kodomotachi-bahasa.html)
+- [Noa-senpai wa Tomodachi Bahasa Indonesia Manga](https://www.ruenovel.com/2025/07/manga-noa-senpai-wa-tomodachi-bahasa.html)
+- [Lv2 kara Cheat datta Moto Yuusha Kouho no Mattari Isekai Life Bahasa Indonesia Manga](https://www.ruenovel.com/2024/11/manga-lv2-kara-cheat-datta-moto-yuusha.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
