@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Isshun Chiryou Shiteita noni Yakutatazu to Tsuihou Sareta Tensai Chiyushi, Yami Healer toshite Tanoshiku Ikiru Bahasa Indonesia](https://www.ruenovel.com/2025/07/novel-isshun-chiryou-shiteita-noni.html)
+- [I Woke Up Piloting the Strongest Starship, so I Became a Space Mercenary Bahasa Indonesia Download](https://www.ruenovel.com/2020/06/i-woke-up-piloting-strongest-starship-donwload.html)
 - [[LN] Saijou no Osewa Jilid 9 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/ln-saijou-no-osewa-jilid-9-prolog.html)
 - [[LN] Saijou no Osewa Jilid 9 Ilustrasi](https://zerokaito.blogspot.com/2025/07/ln-saijou-no-osewa-jilid-9-ilustrasi.html)
 - [Roshidere Jilid 10 Chapter 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/roshidere-jilid-10-chapter-4-bahasa.html)
-- [Tsuihou sareta Tensei Juukishi wa Game Chishiki de Musou suru Bahasa Indonesia Manga](https://www.ruenovel.com/2024/05/manga-tsuihou-sareta-tensei-juukishi-wa.html)
-- [Tokidoki Bosotto Roshiago de Dereru Tonari no Alya-san Bahasa Indonesia Manga](https://www.ruenovel.com/2024/03/manga-tokidoki-bosotto-roshiago-de.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
