@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Bad-end go no Heroine Vol 2 Chapter 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/bad-end-go-no-heroine-vol-2-chapter-7.html)
 - [Itsudemo Jitaku ni Kaerareru Ore wa, Isekai de Gyoushounin o Hajimemashita Bahasa Indonesia Download](https://www.ruenovel.com/2024/09/novel-itsudemo-jitaku-ni-kaerareru-ore-download.html)
 - [Isshun Chiryou Shiteita noni Yakutatazu to Tsuihou Sareta Tensai Chiyushi, Yami Healer toshite Tanoshiku Ikiru Bahasa Indonesia](https://www.ruenovel.com/2025/07/novel-isshun-chiryou-shiteita-noni.html)
 - [I Woke Up Piloting the Strongest Starship, so I Became a Space Mercenary Bahasa Indonesia Download](https://www.ruenovel.com/2020/06/i-woke-up-piloting-strongest-starship-donwload.html)
 - [[LN] Saijou no Osewa Jilid 9 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/ln-saijou-no-osewa-jilid-9-prolog.html)
-- [[LN] Saijou no Osewa Jilid 9 Ilustrasi](https://zerokaito.blogspot.com/2025/07/ln-saijou-no-osewa-jilid-9-ilustrasi.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
