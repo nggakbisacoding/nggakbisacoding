@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
-- [Jinsei Gyakuten Volume 1 Chapter 8 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/jinsei-gyakuten-volume-1-chapter-8.html)
-- [Ojou-sama no Yousu ga Vol 2 Chapter Ekstra 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/ojou-sama-no-yousu-ga-vol-2-chapter_16.html)
-- [Ojou-sama no Yousu ga Vol 2 Chapter Ekstra Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/ojou-sama-no-yousu-ga-vol-2-chapter.html)
-- [Ojou-sama no Yousu ga Vol 2 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/ojou-sama-no-yousu-ga-vol-2-epilog.html)
-- [Bad-end go no Heroine Vol 2 Chapter 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/bad-end-go-no-heroine-vol-2-chapter-7.html)
+- [Itsudemo Jitaku ni Kaerareru Ore wa, Isekai de Gyoushounin o Hajimemashita Bahasa Indonesia Download](https://www.ruenovel.com/2024/09/novel-itsudemo-jitaku-ni-kaerareru-ore-download.html)
+- [Isshun Chiryou Shiteita noni Yakutatazu to Tsuihou Sareta Tensai Chiyushi, Yami Healer toshite Tanoshiku Ikiru Bahasa Indonesia](https://www.ruenovel.com/2025/07/novel-isshun-chiryou-shiteita-noni.html)
+- [I Woke Up Piloting the Strongest Starship, so I Became a Space Mercenary Bahasa Indonesia Download](https://www.ruenovel.com/2020/06/i-woke-up-piloting-strongest-starship-donwload.html)
+- [Tsuihou sareta Tensei Juukishi wa Game Chishiki de Musou suru Bahasa Indonesia Manga](https://www.ruenovel.com/2024/05/manga-tsuihou-sareta-tensei-juukishi-wa.html)
+- [Tokidoki Bosotto Roshiago de Dereru Tonari no Alya-san Bahasa Indonesia Manga](https://www.ruenovel.com/2024/03/manga-tokidoki-bosotto-roshiago-de.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
