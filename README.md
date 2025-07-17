@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Gimai Seikatsu Volume 14 Chapter 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/gimai-seikatsu-volume-14-chapter-2.html)
 - [Jinsei Gyakuten Volume 1 Chapter 8 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/jinsei-gyakuten-volume-1-chapter-8.html)
 - [Ojou-sama no Yousu ga Vol 2 Chapter Ekstra 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/ojou-sama-no-yousu-ga-vol-2-chapter_16.html)
 - [Ojou-sama no Yousu ga Vol 2 Chapter Ekstra Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/ojou-sama-no-yousu-ga-vol-2-chapter.html)
 - [Ojou-sama no Yousu ga Vol 2 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/ojou-sama-no-yousu-ga-vol-2-epilog.html)
-- [Bad-end go no Heroine Vol 2 Chapter 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/bad-end-go-no-heroine-vol-2-chapter-7.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
