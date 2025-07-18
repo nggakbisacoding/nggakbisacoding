@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Roshidere Jilid 10 Chapter 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/roshidere-jilid-10-chapter-5-bahasa.html)
 - [Gimai Seikatsu Volume 14 Chapter 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/gimai-seikatsu-volume-14-chapter-2.html)
 - [Jinsei Gyakuten Volume 1 Chapter 8 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/jinsei-gyakuten-volume-1-chapter-8.html)
 - [Ojou-sama no Yousu ga Vol 2 Chapter Ekstra 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/ojou-sama-no-yousu-ga-vol-2-chapter_16.html)
 - [Ojou-sama no Yousu ga Vol 2 Chapter Ekstra Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/ojou-sama-no-yousu-ga-vol-2-chapter.html)
-- [Ojou-sama no Yousu ga Vol 2 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/ojou-sama-no-yousu-ga-vol-2-epilog.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
