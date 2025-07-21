@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Bad-end go no Heroine Vol 2 Chapter 8.5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/bad-end-go-no-heroine-vol-2-chapter-85.html)
+- [Bad-end go no Heroine Vol 2 Chapter 8 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/bad-end-go-no-heroine-vol-2-chapter-8.html)
 - [[LN] Saijou no Osewa Jilid 9 Bab 1 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/ln-saijou-no-osewa-jilid-9-bab-1-bagian.html)
 - [Roshidere Jilid 10 Chapter 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/roshidere-jilid-10-chapter-5-bahasa.html)
 - [Gimai Seikatsu Volume 14 Chapter 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/gimai-seikatsu-volume-14-chapter-2.html)
-- [Jinsei Gyakuten Volume 1 Chapter 8 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/jinsei-gyakuten-volume-1-chapter-8.html)
-- [Ojou-sama no Yousu ga Vol 2 Chapter Ekstra 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/ojou-sama-no-yousu-ga-vol-2-chapter_16.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
