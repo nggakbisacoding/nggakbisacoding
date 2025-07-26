@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [[LN] Saijou no Osewa Jilid 9 Bab 1 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/ln-saijou-no-osewa-jilid-9-bab-1-bagian_27.html)
 - [Kokou no Denpa Bishoujo Volume 1 Chapter 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/kokou-no-denpa-bishoujo-volume-1_26.html)
 - [Roshidere Jilid 10 Chapter 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/roshidere-jilid-10-chapter-6-bahasa.html)
 - [Jinsei Gyakuten Volume 1 Chapter 9 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/jinsei-gyakuten-volume-1-chapter-9.html)
 - [Inkya no Boku ni Batsu Game ni Kokuhaku Shitekita Hazu no Gyaru ga, Doumitemo Boku ni Betahore Desu Bahasa Indonesia Manga](https://www.ruenovel.com/2025/07/inkya-no-boku-ni-batsu-game-ni-kokuhaku.html)
-- [Houkago no Idol ni wa Himitsu ga aru Bahasa Indonesia Manga](https://www.ruenovel.com/2025/07/manga-houkago-no-idol-ni-wa-himitsu-ga.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
