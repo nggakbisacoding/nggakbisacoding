@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Bad-end go no Heroine Vol 2 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/bad-end-go-no-heroine-vol-2-epilog.html)
+- [Bad-end go no Heroine Vol 2 Chapter 9 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/bad-end-go-no-heroine-vol-2-chapter-9.html)
 - [Tonari no Neko to Koi Shirazu Bahasa Indonesia Manga](https://www.ruenovel.com/2025/07/manga-tonari-no-neko-to-koi-shirazu.html)
 - [Tensei Goblin dakedo Shitsumon Aru? Bahasa Indonesia Manga](https://www.ruenovel.com/2024/03/manga-tensei-goblin-dakedo-shitsumon.html)
 - [Renkinjutsu-shidesu. Jichou wa Gomibako ni Sutete Kimashita. Bahasa Indonesia Manga](https://www.ruenovel.com/2025/07/manga-renkinjutsu-shidesu-jichou-wa.html)
-- [Kaoru Hana wa Rin to Saku Bahasa Indonesia Manga](https://www.ruenovel.com/2024/12/manga-kaoru-hana-wa-rin-to-saku-bahasa.html)
-- [Isekai Saikouhou no Guild Leader Bahasa Indonesia Manga](https://www.ruenovel.com/2024/09/manga-isekai-saikouhou-no-guild-leader.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
