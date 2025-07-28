@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Manga Renkinjutsu-shidesu. Jichou wa Gomibako ni Sutete Kimashita. Bahasa Indonesia](https://www.ruenovel.com/2025/07/manga-renkinjutsu-shidesu-jichou-wa.html)
 - [Kaoru Hana wa Rin to Saku Bahasa Indonesia Manga](https://www.ruenovel.com/2024/12/manga-kaoru-hana-wa-rin-to-saku-bahasa.html)
 - [Isekai Saikouhou no Guild Leader Bahasa Indonesia Manga](https://www.ruenovel.com/2024/09/manga-isekai-saikouhou-no-guild-leader.html)
 - [[LN] Saijou no Osewa Jilid 9 Bab 1 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/ln-saijou-no-osewa-jilid-9-bab-1-bagian_27.html)
 - [Kokou no Denpa Bishoujo Volume 1 Chapter 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/kokou-no-denpa-bishoujo-volume-1_26.html)
-- [Roshidere Jilid 10 Chapter 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/roshidere-jilid-10-chapter-6-bahasa.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
