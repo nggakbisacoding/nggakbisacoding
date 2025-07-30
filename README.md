@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
-- [Boku no Kawai Musume wa Futago no Kenja Bahasa Indonesia Manga](https://www.ruenovel.com/2025/07/manga-boku-no-kawai-musume-wa-futago-no.html)
-- [Gimai Seikatsu Volume 14 Chapter 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/gimai-seikatsu-volume-14-chapter-5.html)
-- [Gimai Seikatsu Volume 14 Chapter 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/gimai-seikatsu-volume-14-chapter-4.html)
-- [Bad-end go no Heroine Vol 2 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/bad-end-go-no-heroine-vol-2-epilog.html)
-- [Bad-end go no Heroine Vol 2 Chapter 9 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/bad-end-go-no-heroine-vol-2-chapter-9.html)
+- [Manga Koori no Hime wa Chiisana Hidamari de Tokasaretai Bahasa Indonesia](https://www.ruenovel.com/2025/07/manga-koori-no-hime-wa-chiisana.html)
+- [Kanojo no Imouto to Kiss wo Shita Bahasa Indonesia Manga](https://www.ruenovel.com/2025/07/mangakanojo-no-imouto-to-kiss-wo-shita.html)
+- [JK kara Yarinaosu Silver Plan Bahasa Indonesia Manga](https://www.ruenovel.com/2024/01/Manga-Jk-kara-yarinasou.html)
+- [Hikikomari Kyuuketsuki no Monmon Bahasa Indonesia Manga](https://www.ruenovel.com/2025/07/manga-hikikomari-kyuuketsuki-no-monmon.html)
+- [Fairy Tail: 100 Years Quest Bahasa Indonesia Manga](https://www.ruenovel.com/2024/08/manga-fairy-tail-100-years-quest-bahasa.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
