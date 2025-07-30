@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Jinsei Gyakuten Volume 1 Chapter Bonus Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/jinsei-gyakuten-volume-1-chapter-bonus.html)
+- [Jinsei Gyakuten Volume 1 Chapter 10 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/jinsei-gyakuten-volume-1-chapter-10.html)
 - [Woke Up Piloting the Strongest Starship, so I Became a Space Mercenary Bahasa Indonesia MangaI](https://www.ruenovel.com/2024/05/mangai-woke-up-piloting-strongest.html)
 - [Koori no Hime wa Chiisana Hidamari de Tokasaretai Bahasa Indonesia Manga](https://www.ruenovel.com/2025/07/manga-koori-no-hime-wa-chiisana.html)
 - [Kanojo no Imouto to Kiss wo Shita Bahasa Indonesia Manga](https://www.ruenovel.com/2025/07/mangakanojo-no-imouto-to-kiss-wo-shita.html)
-- [JK kara Yarinaosu Silver Plan Bahasa Indonesia Manga](https://www.ruenovel.com/2024/01/Manga-Jk-kara-yarinasou.html)
-- [Hikikomari Kyuuketsuki no Monmon Bahasa Indonesia Manga](https://www.ruenovel.com/2025/07/manga-hikikomari-kyuuketsuki-no-monmon.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
