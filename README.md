@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Roshidere Jilid 10 Chapter 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/08/roshidere-jilid-10-chapter-7-bahasa.html)
 - [Kokou no Denpa Bishoujo Volume 1 Chapter 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/08/kokou-no-denpa-bishoujo-volume-1.html)
 - [Jinsei Gyakuten Volume 1 Chapter Bonus Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/jinsei-gyakuten-volume-1-chapter-bonus.html)
 - [Jinsei Gyakuten Volume 1 Chapter 10 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/jinsei-gyakuten-volume-1-chapter-10.html)
 - [Woke Up Piloting the Strongest Starship, so I Became a Space Mercenary Bahasa Indonesia MangaI](https://www.ruenovel.com/2024/05/mangai-woke-up-piloting-strongest.html)
-- [Koori no Hime wa Chiisana Hidamari de Tokasaretai Bahasa Indonesia Manga](https://www.ruenovel.com/2025/07/manga-koori-no-hime-wa-chiisana.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
