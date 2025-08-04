@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Ojou-sama no Yousu ga Vol 3 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/08/ojou-sama-no-yousu-ga-vol-3-prolog.html)
+- [Ojou-sama no Yousu ga Vol 3 Ilustrasi](https://zerokaito.blogspot.com/2025/08/ojou-sama-no-yousu-ga-vol-3-ilustrasi.html)
 - [Gimai Seikatsu Volume 14 Chapter 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/08/gimai-seikatsu-volume-14-chapter-6.html)
 - [[LN] Saijou no Osewa Jilid 9 Bab 2 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/08/ln-saijou-no-osewa-jilid-9-bab-2-bagian.html)
 - [Roshidere Jilid 10 Chapter 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/08/roshidere-jilid-10-chapter-7-bahasa.html)
-- [Kokou no Denpa Bishoujo Volume 1 Chapter 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/08/kokou-no-denpa-bishoujo-volume-1.html)
-- [Jinsei Gyakuten Volume 1 Chapter Bonus Bahasa Indonesia](https://zerokaito.blogspot.com/2025/07/jinsei-gyakuten-volume-1-chapter-bonus.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
