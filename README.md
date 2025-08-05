@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Tsumi to Batsu no Spica Bahasa Indonesia Manga](https://www.ruenovel.com/2025/08/manga-tsumi-to-batsu-no-spica-bahasa.html)
+- [Tensei Shitara dai Nana Ouji Dattanode, Kimamani Majutsu o Kiwamemasu Bahasa Indonesia  Manga](https://www.ruenovel.com/2025/05/manga-tensei-shitara-dai-nana-ouji.html)
 - [Tensei Kizoku no Isekai Boukenroku Bahasa Indonesia Manga](https://www.ruenovel.com/2025/08/mangatensei-kizoku-no-isekai-boukenroku.html)
 - [Shangri-La Frontier Bahasa Indonesia Manga](https://www.ruenovel.com/2024/01/manga-shangri-la-frontier-bahasa.html)
 - [Ore no Kokan wa Bishoujo Datta no ka Bahasa Indonesia Manga](https://www.ruenovel.com/2025/08/manga-ore-no-kokan-wa-bishoujo-datta-no.html)
-- [Ore no Iinazuke ni Natta Jimiko, Ie de wa Kawaii Shika nai Bahasa Indonesia manga](https://www.ruenovel.com/2025/06/manga-ore-no-iinazuke-ni-natta-jimiko.html)
-- [Ojou-sama no Yousu ga Vol 3 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/08/ojou-sama-no-yousu-ga-vol-3-prolog.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
