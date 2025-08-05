@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Jinsei Gyakuten Volume 2 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/08/jinsei-gyakuten-volume-2-prolog-bahasa.html)
+- [Jinsei Gyakuten Volume 2 Ilustrasi](https://zerokaito.blogspot.com/2025/08/jinsei-gyakuten-volume-2-ilustrasi.html)
 - [Tsumi to Batsu no Spica Bahasa Indonesia Manga](https://www.ruenovel.com/2025/08/manga-tsumi-to-batsu-no-spica-bahasa.html)
 - [Tensei Shitara dai Nana Ouji Dattanode, Kimamani Majutsu o Kiwamemasu Bahasa Indonesia  Manga](https://www.ruenovel.com/2025/05/manga-tensei-shitara-dai-nana-ouji.html)
 - [Tensei Kizoku no Isekai Boukenroku Bahasa Indonesia Manga](https://www.ruenovel.com/2025/08/mangatensei-kizoku-no-isekai-boukenroku.html)
-- [Shangri-La Frontier Bahasa Indonesia Manga](https://www.ruenovel.com/2024/01/manga-shangri-la-frontier-bahasa.html)
-- [Ore no Kokan wa Bishoujo Datta no ka Bahasa Indonesia Manga](https://www.ruenovel.com/2025/08/manga-ore-no-kokan-wa-bishoujo-datta-no.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
