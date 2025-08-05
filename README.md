@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Tensei Kizoku no Isekai Boukenroku Bahasa Indonesia Manga](https://www.ruenovel.com/2025/08/mangatensei-kizoku-no-isekai-boukenroku.html)
+- [Shangri-La Frontier Bahasa Indonesia Manga](https://www.ruenovel.com/2024/01/manga-shangri-la-frontier-bahasa.html)
+- [Ore no Kokan wa Bishoujo Datta no ka Bahasa Indonesia Manga](https://www.ruenovel.com/2025/08/manga-ore-no-kokan-wa-bishoujo-datta-no.html)
+- [Ore no Iinazuke ni Natta Jimiko, Ie de wa Kawaii Shika nai Bahasa Indonesia manga](https://www.ruenovel.com/2025/06/manga-ore-no-iinazuke-ni-natta-jimiko.html)
 - [Ojou-sama no Yousu ga Vol 3 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/08/ojou-sama-no-yousu-ga-vol-3-prolog.html)
-- [Ojou-sama no Yousu ga Vol 3 Ilustrasi](https://zerokaito.blogspot.com/2025/08/ojou-sama-no-yousu-ga-vol-3-ilustrasi.html)
-- [Gimai Seikatsu Volume 14 Chapter 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/08/gimai-seikatsu-volume-14-chapter-6.html)
-- [[LN] Saijou no Osewa Jilid 9 Bab 2 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/08/ln-saijou-no-osewa-jilid-9-bab-2-bagian.html)
-- [Roshidere Jilid 10 Chapter 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/08/roshidere-jilid-10-chapter-7-bahasa.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
