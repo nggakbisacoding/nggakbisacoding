@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Roshidere Jilid 10 Chapter 8 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/08/roshidere-jilid-10-chapter-8-bahasa.html)
 - [Gimai Seikatsu Volume 14 Chapter 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/08/gimai-seikatsu-volume-14-chapter-7.html)
 - [Jinsei Gyakuten Volume 2 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/08/jinsei-gyakuten-volume-2-prolog-bahasa.html)
 - [Jinsei Gyakuten Volume 2 Ilustrasi](https://zerokaito.blogspot.com/2025/08/jinsei-gyakuten-volume-2-ilustrasi.html)
 - [Tsumi to Batsu no Spica Bahasa Indonesia Manga](https://www.ruenovel.com/2025/08/manga-tsumi-to-batsu-no-spica-bahasa.html)
-- [Tensei Shitara dai Nana Ouji Dattanode, Kimamani Majutsu o Kiwamemasu Bahasa Indonesia  Manga](https://www.ruenovel.com/2025/05/manga-tensei-shitara-dai-nana-ouji.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
