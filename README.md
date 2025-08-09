@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [[LN] Saijou no Osewa Jilid 9 Bab 2 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/08/ln-saijou-no-osewa-jilid-9-bab-2-bagian_10.html)
 - [Gimai Seikatsu Volume 14 Chapter 8 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/08/gimai-seikatsu-volume-14-chapter-8.html)
 - [Roshidere Jilid 10 Chapter 8 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/08/roshidere-jilid-10-chapter-8-bahasa.html)
 - [Gimai Seikatsu Volume 14 Chapter 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/08/gimai-seikatsu-volume-14-chapter-7.html)
 - [Jinsei Gyakuten Volume 2 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/08/jinsei-gyakuten-volume-2-prolog-bahasa.html)
-- [Jinsei Gyakuten Volume 2 Ilustrasi](https://zerokaito.blogspot.com/2025/08/jinsei-gyakuten-volume-2-ilustrasi.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
