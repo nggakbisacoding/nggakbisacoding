@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Jinsei Gyakuten Volume 2 Chapter 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/08/jinsei-gyakuten-volume-2-chapter-1.html)
 - [Ojou-sama no Yousu ga Vol 3 Chapter 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/08/ojou-sama-no-yousu-ga-vol-3-chapter-1.html)
 - [Moto Yuusha wa Shizuka ni Kurashitai Bahasa Indonesia Manga](https://www.ruenovel.com/2025/08/manga-moto-yuusha-wa-shizuka-ni.html)
 - [Maou Toubatsu Shita Ato, Medachitakunai node Guild Master ni Natta Bahasa Indonesia Manga](https://www.ruenovel.com/2024/01/manga-maou-toubatsu-shita-ato.html)
 - [Jirai Nandesu ka? Chihara-san Bahasa Indonesia Manga](https://www.ruenovel.com/2025/08/manga-jirai-nandesu-ka-chihara-san.html)
-- [Hachinan tte, Sore wa Nai Deshou! Bahasa Indonesia Manga](https://www.ruenovel.com/2024/06/manga-hachinan-tte-sore-wa-nai-deshou.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
