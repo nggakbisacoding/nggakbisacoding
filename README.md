@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Gimai Seikatsu Volume 14 Chapter 10 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/08/gimai-seikatsu-volume-14-chapter-10.html)
+- [Gimai Seikatsu Volume 14 Chapter 9 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/08/gimai-seikatsu-volume-14-chapter-9.html)
 - [Shujinkou Janai! Bahasa Indonesia Manga](https://www.ruenovel.com/2025/08/manga-shujinkou-janai-bahasa-indonesia.html)
 - [Jinsei Gyakuten Volume 2 Chapter 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/08/jinsei-gyakuten-volume-2-chapter-1.html)
 - [Ojou-sama no Yousu ga Vol 3 Chapter 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/08/ojou-sama-no-yousu-ga-vol-3-chapter-1.html)
-- [Moto Yuusha wa Shizuka ni Kurashitai Bahasa Indonesia Manga](https://www.ruenovel.com/2025/08/manga-moto-yuusha-wa-shizuka-ni.html)
-- [Maou Toubatsu Shita Ato, Medachitakunai node Guild Master ni Natta Bahasa Indonesia Manga](https://www.ruenovel.com/2024/01/manga-maou-toubatsu-shita-ato.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
