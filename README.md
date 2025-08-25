@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Hazure Waku no [Joutai Ijou Skill] de Saikyou ni Natta Ore ga Subete wo Juurin Suru made Bahasa Indonesia Manga](https://www.ruenovel.com/2025/08/manga-hazure-waku-no-joutai-ijou-skill.html)
+- [Futago Matomete &quot;Kanojo&quot; ni Shinai? Bahasa Indonesia Manga](https://www.ruenovel.com/2025/08/manga-futago-matomete-kanojo-ni-shinai.html)
+- [Danjo no Yujou wa Seiritsu suru? &lpar;Iya, Shinai!!&rpar; Bahasa Indonesia Manga](https://www.ruenovel.com/2025/04/manga-danjo-no-yujou-wa-seiritsu-suru.html)
+- [Berserk of Gluttony Bahasa Indonesia Manga](https://www.ruenovel.com/2025/08/manga-berserk-of-gluttony-bahasa.html)
 - [Gimai Seikatsu Volume 14 Chapter 13 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/08/gimai-seikatsu-volume-14-chapter-13.html)
-- [[LN] Saijou no Osewa Jilid 9 Bab 3 Bagian 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/08/ln-saijou-no-osewa-jilid-9-bab-3-bagian_24.html)
-- [Kokou no Denpa Bishoujo Vol 1 Chapter 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/08/kokou-no-denpa-bishoujo-vol-1-chapter-5.html)
-- [Gimai Seikatsu Volume 14 Chapter 12 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/08/gimai-seikatsu-volume-14-chapter-12.html)
-- [Jinsei Gyakuten Volume 2 Chapter 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/08/jinsei-gyakuten-volume-2-chapter-2.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
