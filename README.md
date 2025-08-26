@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Gimai Seikatsu Volume 14 Chapter 14 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/08/gimai-seikatsu-volume-14-chapter-14.html)
 - [Classmate no Zannen Bishoujo, Kin wo Haratte Demo Ore to Tomodachi ni Naritai Bahasa Indonesia](https://www.ruenovel.com/2025/08/ln-classmate-no-zannen-bishoujo-kin-wo.html)
 - [Ojou-sama no Yousu ga Vol 3 Chapter 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/08/ojou-sama-no-yousu-ga-vol-3-chapter-3.html)
 - [Hazure Waku no [Joutai Ijou Skill] de Saikyou ni Natta Ore ga Subete wo Juurin Suru made Bahasa Indonesia Manga](https://www.ruenovel.com/2025/08/manga-hazure-waku-no-joutai-ijou-skill.html)
 - [Futago Matomete &quot;Kanojo&quot; ni Shinai? Bahasa Indonesia Manga](https://www.ruenovel.com/2025/08/manga-futago-matomete-kanojo-ni-shinai.html)
-- [Danjo no Yujou wa Seiritsu suru? &lpar;Iya, Shinai!!&rpar; Bahasa Indonesia Manga](https://www.ruenovel.com/2025/04/manga-danjo-no-yujou-wa-seiritsu-suru.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
