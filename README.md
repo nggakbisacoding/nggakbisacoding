@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Gimai Seikatsu Volume 14 Kata Penutup](https://zerokaito.blogspot.com/2025/08/gimai-seikatsu-volume-14-kata-penutup.html)
+- [Gimai Seikatsu Volume 14 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/08/gimai-seikatsu-volume-14-epilog-bahasa.html)
+- [Gimai Seikatsu Volume 14 Chapter 15 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/08/gimai-seikatsu-volume-14-chapter-15.html)
 - [Jinsei Gyakuten Volume 2 Chapter 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/08/jinsei-gyakuten-volume-2-chapter-3.html)
 - [Inkya no Boku ni Batsu Game ni Kokuhaku Shitekita Hazu no Gyaru ga, Doumitemo Boku ni Betahore Desu Bahasa Indonesia Download](https://www.ruenovel.com/2023/09/nkya-no-boku-ni-batsu-game-ni-kokuhaku-download.html)
-- [Gimai Seikatsu Volume 14 Chapter 14 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/08/gimai-seikatsu-volume-14-chapter-14.html)
-- [Classmate no Zannen Bishoujo, Kin wo Haratte Demo Ore to Tomodachi ni Naritai Bahasa Indonesia Download](https://www.ruenovel.com/2025/08/ln-classmate-no-zannen-bishoujo-kin-wo.html)
-- [Ojou-sama no Yousu ga Vol 3 Chapter 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/08/ojou-sama-no-yousu-ga-vol-3-chapter-3.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
