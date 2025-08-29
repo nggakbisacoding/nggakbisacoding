@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Manga Kuroiwa Medaka ni Watashi no Kawaii ga Tsuujinai Bahasa Indonesia](https://www.ruenovel.com/2025/08/manga-kuroiwa-medaka-ni-watashi-no.html)
+- [Kizoku Tensei ~Megumareta Umare kara Saikyou no Chikara o Eru~ Bahasa Indonesia manga](https://www.ruenovel.com/2025/08/manga-kizoku-tensei-megumareta-umare.html)
 - [Gimai Seikatsu Volume 14 Kata Penutup](https://zerokaito.blogspot.com/2025/08/gimai-seikatsu-volume-14-kata-penutup.html)
 - [Gimai Seikatsu Volume 14 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/08/gimai-seikatsu-volume-14-epilog-bahasa.html)
 - [Gimai Seikatsu Volume 14 Chapter 15 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/08/gimai-seikatsu-volume-14-chapter-15.html)
-- [Jinsei Gyakuten Volume 2 Chapter 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/08/jinsei-gyakuten-volume-2-chapter-3.html)
-- [Inkya no Boku ni Batsu Game ni Kokuhaku Shitekita Hazu no Gyaru ga, Doumitemo Boku ni Betahore Desu Bahasa Indonesia Download](https://www.ruenovel.com/2023/09/nkya-no-boku-ni-batsu-game-ni-kokuhaku-download.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
