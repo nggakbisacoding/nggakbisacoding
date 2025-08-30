@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Kokou no Denpa Bishoujo Vol 1 Chapter 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/08/kokou-no-denpa-bishoujo-vol-1-chapter-6.html)
 - [Tensei Kenja no Isekai Life Bahasa Indonesia Manga](https://www.ruenovel.com/2025/08/manga-tensei-kenja-no-isekai-life.html)
 - [Ouritsu Mahou Gakuen no Saikasei Bahasa Indonesia Manga](https://www.ruenovel.com/2025/08/manga-ouritsu-mahou-gakuen-no-saikasei.html)
 - [Otome Game no Heroine de Saikyou Survival Bahasa Indonesia Manga](https://www.ruenovel.com/2025/08/manga-otome-game-no-heroine-de-saikyou.html)
 - [Kuroiwa Medaka ni Watashi no Kawaii ga Tsuujinai Bahasa Indonesia Manga](https://www.ruenovel.com/2025/08/manga-kuroiwa-medaka-ni-watashi-no.html)
-- [Kizoku Tensei ~Megumareta Umare kara Saikyou no Chikara o Eru~ Bahasa Indonesia manga](https://www.ruenovel.com/2025/08/manga-kizoku-tensei-megumareta-umare.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
