@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
-- [[LN] Saijou no Osewa Jilid 9 Bab 4 Bagian 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/08/ln-saijou-no-osewa-jilid-9-bab-4-bagian.html)
-- [Kokou no Denpa Bishoujo Vol 1 Chapter 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/08/kokou-no-denpa-bishoujo-vol-1-chapter-6.html)
-- [Tensei Kenja no Isekai Life Bahasa Indonesia Manga](https://www.ruenovel.com/2025/08/manga-tensei-kenja-no-isekai-life.html)
-- [Ouritsu Mahou Gakuen no Saikasei Bahasa Indonesia Manga](https://www.ruenovel.com/2025/08/manga-ouritsu-mahou-gakuen-no-saikasei.html)
-- [Otome Game no Heroine de Saikyou Survival Bahasa Indonesia Manga](https://www.ruenovel.com/2025/08/manga-otome-game-no-heroine-de-saikyou.html)
+- [Ojou-sama no Yousu ga Vol 3 Kata Penutup](https://zerokaito.blogspot.com/2025/09/ojou-sama-no-yousu-ga-vol-3-kata-penutup.html)
+- [Ojou-sama no Yousu ga Vol 3 Bonus 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/09/ojou-sama-no-yousu-ga-vol-3-bonus-2.html)
+- [Ojou-sama no Yousu ga Vol 3 Bonus 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/09/ojou-sama-no-yousu-ga-vol-3-bonus-1.html)
+- [Ojou-sama no Yousu ga Vol 3 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/09/ojou-sama-no-yousu-ga-vol-3-epilog.html)
+- [Ojou-sama no Yousu ga Vol 3 Chapter 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/09/ojou-sama-no-yousu-ga-vol-3-chapter-5.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
