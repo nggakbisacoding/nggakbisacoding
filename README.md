@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Kokou no Denpa Bishoujo Vol 1 Chapter 9 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/09/kokou-no-denpa-bishoujo-vol-1-chapter-9.html)
 - [Kokou no Denpa Bishoujo Vol 1 Chapter 8 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/09/kokou-no-denpa-bishoujo-vol-1-chapter-8.html)
 - [Kokou no Denpa Bishoujo Vol 1 Chapter 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/09/kokou-no-denpa-bishoujo-vol-1-chapter-7.html)
 - [Jinsei Gyakuten Volume 2 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/09/jinsei-gyakuten-volume-2-epilog-bahasa.html)
 - [Jinsei Gyakuten Volume 2 Chapter 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/09/jinsei-gyakuten-volume-2-chapter-6.html)
-- [Jinsei Gyakuten Volume 2 Chapter 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/09/jinsei-gyakuten-volume-2-chapter-5.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
