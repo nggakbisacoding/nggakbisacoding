@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Koukou jidai ni Sukidatta Vol 1 Chapter 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/09/koukou-jidai-ni-sukidatta-vol-1-chapter.html)
 - [Koukou jidai ni Sukidatta Vol 1 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/09/koukou-jidai-ni-sukidatta-vol-1-prolog.html)
 - [Koukou jidai ni Sukidatta Vol 1 Ilustrasi](https://zerokaito.blogspot.com/2025/09/koukou-jidai-ni-sukidatta-vol-1.html)
 - [Koukou jidai ni Sukidatta Moto Dokyuusei no S-kyuu Bijo ga Tonari ni hikkoshite kita. Gijou to tomoni Bahasa Indonesia](https://zerokaito.blogspot.com/2025/09/koukou-jidai-ni-sukidatta-moto.html)
 - [Kokou no Denpa Bishoujo Vol 1 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/09/kokou-no-denpa-bishoujo-vol-1-epilog.html)
-- [Kokou no Denpa Bishoujo Vol 1 Chapter 10 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/09/kokou-no-denpa-bishoujo-vol-1-chapter.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
