@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [The Cheeky Junior Gal Becomes Too Cute When She Gets Attached to Me Bahasa Indonesia Light Novel](https://www.ruenovel.com/2025/09/novel-cheeky-junior-gal-becomes-too.html)
+- [Kakure Tensei Yuusha ~Cheat Skill to Yuusha Job wo Kakushite Dai Ni no Jinsei wo Tanoshindeyaru!~ Bahasa Indonesia Light Novel](https://www.ruenovel.com/2025/09/novel-kakure-tensei-yuusha-cheat-skill.html)
 - [Iken Senki Völundio Bahasa Indonesia Manga](https://www.ruenovel.com/2025/09/manga-iken-senki-volundio-bahasa.html)
 - [Hazure Hantei kara Hajimatta Cheat Majutsushi Seikatsu Bahasa Indonesia Manga](https://www.ruenovel.com/2025/09/manga-hazure-hantei-kara-hajimatta.html)
 - [Danshi dato Omotteita Osananajimi tono Shinkon Seikatsu ga Umaku Ikisugiru Ken ni Tsuite Bahasa Indonesia Manga](https://www.ruenovel.com/2025/04/manga-danshi-dato-omotteita-osananajimi.html)
-- [Ano ko ni naisho no VTUBER ! Bahasa Indonesia Manga](https://www.ruenovel.com/2025/09/manga-ano-ko-ni-naisho-no-vtuber-bahasa.html)
-- [Akuyaku Reijou no Ani ni Tensei Shimashita Bahasa Indonesia Manga](https://www.ruenovel.com/2025/09/manga-akuyaku-reijou-no-ani-ni-tensei.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
