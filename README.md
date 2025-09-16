@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
-- [Koukou jidai ni Sukidatta Vol 1 Chapter 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/09/koukou-jidai-ni-sukidatta-vol-1-chapter_15.html)
-- [Koukou jidai ni Sukidatta Vol 1 Chapter 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/09/koukou-jidai-ni-sukidatta-vol-1-chapter_13.html)
-- [Koukou jidai ni Sukidatta Vol 1 Chapter 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/09/koukou-jidai-ni-sukidatta-vol-1-chapter.html)
-- [Koukou jidai ni Sukidatta Vol 1 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/09/koukou-jidai-ni-sukidatta-vol-1-prolog.html)
-- [Koukou jidai ni Sukidatta Vol 1 Ilustrasi](https://zerokaito.blogspot.com/2025/09/koukou-jidai-ni-sukidatta-vol-1.html)
+- [Iken Senki Völundio Bahasa Indonesia Manga](https://www.ruenovel.com/2025/09/manga-iken-senki-volundio-bahasa.html)
+- [Hazure Hantei kara Hajimatta Cheat Majutsushi Seikatsu Bahasa Indonesia Manga](https://www.ruenovel.com/2025/09/manga-hazure-hantei-kara-hajimatta.html)
+- [Danshi dato Omotteita Osananajimi tono Shinkon Seikatsu ga Umaku Ikisugiru Ken ni Tsuite Bahasa Indonesia Manga](https://www.ruenovel.com/2025/04/manga-danshi-dato-omotteita-osananajimi.html)
+- [Ano ko ni naisho no VTUBER ! Bahasa Indonesia Manga](https://www.ruenovel.com/2025/09/manga-ano-ko-ni-naisho-no-vtuber-bahasa.html)
+- [Akuyaku Reijou no Ani ni Tensei Shimashita Bahasa Indonesia Manga](https://www.ruenovel.com/2025/09/manga-akuyaku-reijou-no-ani-ni-tensei.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
