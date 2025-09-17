@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
-- [The Cheeky Junior Gal Becomes Too Cute When She Gets Attached to Me Bahasa Indonesia Light Novel](https://www.ruenovel.com/2025/09/novel-cheeky-junior-gal-becomes-too.html)
-- [Kakure Tensei Yuusha ~Cheat Skill to Yuusha Job wo Kakushite Dai Ni no Jinsei wo Tanoshindeyaru!~ Bahasa Indonesia Light Novel](https://www.ruenovel.com/2025/09/novel-kakure-tensei-yuusha-cheat-skill.html)
-- [Iken Senki Völundio Bahasa Indonesia Manga](https://www.ruenovel.com/2025/09/manga-iken-senki-volundio-bahasa.html)
-- [Hazure Hantei kara Hajimatta Cheat Majutsushi Seikatsu Bahasa Indonesia Manga](https://www.ruenovel.com/2025/09/manga-hazure-hantei-kara-hajimatta.html)
-- [Danshi dato Omotteita Osananajimi tono Shinkon Seikatsu ga Umaku Ikisugiru Ken ni Tsuite Bahasa Indonesia Manga](https://www.ruenovel.com/2025/04/manga-danshi-dato-omotteita-osananajimi.html)
+- [Nikagetsugo ni Seibetsu ga Bareru Josou Danshi Bahasa Indonesia Manga](https://www.ruenovel.com/2025/09/manga-nikagetsugo-ni-seibetsu-ga-bareru.html)
+- [Miyaou Tarou ga Neko wo Kau Nante Bahasa Indonesia Manga](https://www.ruenovel.com/2025/09/manga-miyaou-tarou-ga-neko-wo-kau-nante.html)
+- [Yuusha Alya-san Bab 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/09/yuusha-alya-san-bab-3-bahasa-indonesia.html)
+- [Yuusha Alya-san Bab 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/09/yuusha-alya-san-bab-2-bahasa-indonesia.html)
+- [Yuusha Alya-san Bab 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/09/yuusha-alya-san-bab-1-bahasa-indonesia.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
