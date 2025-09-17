@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
-- [Nikagetsugo ni Seibetsu ga Bareru Josou Danshi Bahasa Indonesia Manga](https://www.ruenovel.com/2025/09/manga-nikagetsugo-ni-seibetsu-ga-bareru.html)
-- [Miyaou Tarou ga Neko wo Kau Nante Bahasa Indonesia Manga](https://www.ruenovel.com/2025/09/manga-miyaou-tarou-ga-neko-wo-kau-nante.html)
-- [Yuusha Alya-san Bab 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/09/yuusha-alya-san-bab-3-bahasa-indonesia.html)
-- [Yuusha Alya-san Bab 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/09/yuusha-alya-san-bab-2-bahasa-indonesia.html)
-- [Yuusha Alya-san Bab 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/09/yuusha-alya-san-bab-1-bahasa-indonesia.html)
+- [Shikkoku Tsukai no Saikyou Yuusha Bahasa Indonesia Manga](https://www.ruenovel.com/2023/11/manga-shikoku-tsukai-no-saikyou-yuusha.html)
+- [Shihai Shoujo Kubaru-chan Bahasa Indonesia Manga](https://www.ruenovel.com/2025/09/manga-shihai-shoujo-kubaru-chan-bahasa.html)
+- [Succubus to Hajimeru Shinkenkousai Bahasa Indonesia Manga](https://www.ruenovel.com/2025/09/manga-succubus-to-hajimeru.html)
+- [Sasaki-san wa Chotto dake Sugoi. Bahasa Indonesia Manga](https://www.ruenovel.com/2025/09/manga-sasaki-san-wa-chotto-dake.html)
+- [Saikyou de Saisoku no Mugen Level Up Bahasa Indonesia Manga](https://www.ruenovel.com/2025/09/manga-saikyou-de-saisoku-no-mugen-level.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
