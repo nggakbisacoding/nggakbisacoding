@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [The Cheeky Junior Gal Becomes Too Cute When She Gets Attached to Me Bahasa Indonesia Light Novel](https://www.ruenovel.com/2025/09/novel-cheeky-junior-gal-becomes-too.html)
+- [Kakure Tensei Yuusha ~Cheat Skill to Yuusha Job wo Kakushite Dai Ni no Jinsei wo Tanoshindeyaru!~ Bahasa Indonesia Light Novel](https://www.ruenovel.com/2025/09/novel-kakure-tensei-yuusha-cheat-skill.html)
 - [Shikkoku Tsukai no Saikyou Yuusha Bahasa Indonesia Manga](https://www.ruenovel.com/2023/11/manga-shikoku-tsukai-no-saikyou-yuusha.html)
 - [Shihai Shoujo Kubaru-chan Bahasa Indonesia Manga](https://www.ruenovel.com/2025/09/manga-shihai-shoujo-kubaru-chan-bahasa.html)
 - [Succubus to Hajimeru Shinkenkousai Bahasa Indonesia Manga](https://www.ruenovel.com/2025/09/manga-succubus-to-hajimeru.html)
-- [Sasaki-san wa Chotto dake Sugoi. Bahasa Indonesia Manga](https://www.ruenovel.com/2025/09/manga-sasaki-san-wa-chotto-dake.html)
-- [Saikyou de Saisoku no Mugen Level Up Bahasa Indonesia Manga](https://www.ruenovel.com/2025/09/manga-saikyou-de-saisoku-no-mugen-level.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
