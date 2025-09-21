@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Koukou jidai ni Sukidatta Vol 1 Chapter 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/09/koukou-jidai-ni-sukidatta-vol-1-chapter_21.html)
 - [Koukou jidai ni Sukidatta Vol 1 Chapter 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/09/koukou-jidai-ni-sukidatta-vol-1-chapter_20.html)
 - [The Cheeky Junior Gal Becomes Too Cute When She Gets Attached to Me Bahasa Indonesia Light Novel](https://www.ruenovel.com/2025/09/novel-cheeky-junior-gal-becomes-too.html)
 - [Kakure Tensei Yuusha ~Cheat Skill to Yuusha Job wo Kakushite Dai Ni no Jinsei wo Tanoshindeyaru!~ Bahasa Indonesia Light Novel](https://www.ruenovel.com/2025/09/novel-kakure-tensei-yuusha-cheat-skill.html)
 - [Shikkoku Tsukai no Saikyou Yuusha Bahasa Indonesia Manga](https://www.ruenovel.com/2023/11/manga-shikoku-tsukai-no-saikyou-yuusha.html)
-- [Shihai Shoujo Kubaru-chan Bahasa Indonesia Manga](https://www.ruenovel.com/2025/09/manga-shihai-shoujo-kubaru-chan-bahasa.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
