@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Tensei Muhai no Isekai Kenja ~Game no Job de Tanoshii Second Life~ Bahasa Indonesia Light Novel](https://www.ruenovel.com/2025/09/novel-tensei-muhai-no-isekai-kenja-game.html)
 - [Koukou jidai ni Sukidatta Vol 1 Chapter 8 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/09/koukou-jidai-ni-sukidatta-vol-1-chapter_25.html)
 - [Koukou jidai ni Sukidatta Vol 1 Chapter 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/09/koukou-jidai-ni-sukidatta-vol-1-chapter_23.html)
 - [Koukou jidai ni Sukidatta Vol 1 Chapter 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/09/koukou-jidai-ni-sukidatta-vol-1-chapter_21.html)
 - [Koukou jidai ni Sukidatta Vol 1 Chapter 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/09/koukou-jidai-ni-sukidatta-vol-1-chapter_20.html)
-- [The Cheeky Junior Gal Becomes Too Cute When She Gets Attached to Me Bahasa Indonesia Light Novel](https://www.ruenovel.com/2025/09/novel-cheeky-junior-gal-becomes-too.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
