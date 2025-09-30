@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Shimotsuki-san Jilid 1 Bab 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/09/shimotsuki-san-jilid-1-bab-1-bahasa.html)
+- [Shimotsuki-san Jilid 1 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/09/shimotsuki-san-jilid-1-prolog-bahasa.html)
+- [Shimotsuki-san Jilid 1 Ilustrasi](https://zerokaito.blogspot.com/2025/09/shimotsuki-san-jilid-1-ilustrasi.html)
 - [Koukou jidai ni Sukidatta Vol 1 Chapter Ekstra Bahasa Indonesia](https://zerokaito.blogspot.com/2025/09/koukou-jidai-ni-sukidatta-vol-1-chapter_97.html)
 - [Koukou jidai ni Sukidatta Vol 1 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/09/koukou-jidai-ni-sukidatta-vol-1-epilog.html)
-- [Koukou jidai ni Sukidatta Vol 1 Chapter 10 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/09/koukou-jidai-ni-sukidatta-vol-1-chapter_77.html)
-- [Koukou jidai ni Sukidatta Vol 1 Chapter 9 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/09/koukou-jidai-ni-sukidatta-vol-1-chapter_29.html)
-- [Tensei Muhai no Isekai Kenja ~Game no Job de Tanoshii Second Life~ Bahasa Indonesia Light Novel](https://www.ruenovel.com/2025/09/novel-tensei-muhai-no-isekai-kenja-game.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
