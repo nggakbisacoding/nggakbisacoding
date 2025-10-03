@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Shimotsuki-san Jilid 1 Bab 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/10/shimotsuki-san-jilid-1-bab-3-bahasa.html)
 - [Shimotsuki-san Jilid 1 Bab 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/10/shimotsuki-san-jilid-1-bab-2-bahasa.html)
 - [Shimotsuki-san Jilid 1 Bab 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/09/shimotsuki-san-jilid-1-bab-1-bahasa.html)
 - [Shimotsuki-san Jilid 1 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/09/shimotsuki-san-jilid-1-prolog-bahasa.html)
 - [Shimotsuki-san Jilid 1 Ilustrasi](https://zerokaito.blogspot.com/2025/09/shimotsuki-san-jilid-1-ilustrasi.html)
-- [Koukou jidai ni Sukidatta Vol 1 Chapter Ekstra Bahasa Indonesia](https://zerokaito.blogspot.com/2025/09/koukou-jidai-ni-sukidatta-vol-1-chapter_97.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
