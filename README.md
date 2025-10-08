@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Shimotsuki-san Jilid 1 Bab 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/10/shimotsuki-san-jilid-1-bab-5-bahasa.html)
 - [The Unimplemented Last Boss is my Friend Bahasa Indonesia Light Novel](https://www.ruenovel.com/2025/10/light-novel-unimplemented-last-boss-is.html)
 - [Shimotsuki-san Jilid 1 Bab 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/10/shimotsuki-san-jilid-1-bab-4-bahasa.html)
 - [Otonari no Tenshi-sama Volume 11.5 Chapter 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/10/otonari-no-tenshi-sama-volume-115_5.html)
 - [Otonari no Tenshi-sama Volume 11.5 Ilustrasi](https://zerokaito.blogspot.com/2025/10/otonari-no-tenshi-sama-volume-115.html)
-- [Shimotsuki-san Jilid 1 Bab 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/10/shimotsuki-san-jilid-1-bab-3-bahasa.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
