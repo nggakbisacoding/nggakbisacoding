@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Shimotsuki-san Jilid 1 Bab Bonus Bahasa Indonesia](https://zerokaito.blogspot.com/2025/10/shimotsuki-san-jilid-1-bab-bonus-bahasa.html)
+- [Shimotsuki-san Jilid 1 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/10/shimotsuki-san-jilid-1-epilog-bahasa.html)
+- [Shimotsuki-san Jilid 1 Bab 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/10/shimotsuki-san-jilid-1-bab-7-bahasa.html)
 - [Otonari no Tenshi-sama Volume 11.5 Chapter 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/10/otonari-no-tenshi-sama-volume-115_11.html)
 - [Shimotsuki-san Jilid 1 Bab 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/10/shimotsuki-san-jilid-1-bab-6-bahasa.html)
-- [Shimotsuki-san Jilid 1 Bab 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/10/shimotsuki-san-jilid-1-bab-5-bahasa.html)
-- [Shimotsuki-san Jilid 1 Bab 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/10/shimotsuki-san-jilid-1-bab-4-bahasa.html)
-- [Otonari no Tenshi-sama Volume 11.5 Chapter 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/10/otonari-no-tenshi-sama-volume-115_5.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
