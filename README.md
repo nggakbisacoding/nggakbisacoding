@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Shimotsuki-san Jilid 2 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/10/shimotsuki-san-jilid-2-prolog-bahasa.html)
+- [Shimotsuki-san Jilid 2 Ilustrasi](https://zerokaito.blogspot.com/2025/10/shimotsuki-san-jilid-2-ilustrasi.html)
 - [Heroine-tachi ga Chapter 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/10/heroine-tachi-ga-chapter-1-bahasa.html)
 - [Heroine-tachi ga Ore no [Nikkicho] Ilustrasi](https://zerokaito.blogspot.com/2025/10/heroine-tachi-ga-ore-no-nikkicho.html)
 - [Shibo endo wo Kaihishita Gyaruge no Heroine-tachi ga Ore no [Nikkicho] wo Yonde himitsu wo Shittarashii](https://zerokaito.blogspot.com/2025/09/shibo-endo-wo-kaihishita-gyaruge-no.html)
-- [Shimotsuki-san Jilid 1 Bab Bonus Bahasa Indonesia](https://zerokaito.blogspot.com/2025/10/shimotsuki-san-jilid-1-bab-bonus-bahasa.html)
-- [Shimotsuki-san Jilid 1 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/10/shimotsuki-san-jilid-1-epilog-bahasa.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
