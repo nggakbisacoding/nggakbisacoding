@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Otonari no Tenshi-sama Volume 11.5 Chapter 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/10/otonari-no-tenshi-sama-volume-115_21.html)
 - [Heroine-tachi ga Chapter 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/10/heroine-tachi-ga-chapter-2-bahasa.html)
 - [Shimotsuki-san Jilid 2 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/10/shimotsuki-san-jilid-2-prolog-bahasa.html)
 - [Shimotsuki-san Jilid 2 Ilustrasi](https://zerokaito.blogspot.com/2025/10/shimotsuki-san-jilid-2-ilustrasi.html)
 - [Heroine-tachi ga Chapter 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/10/heroine-tachi-ga-chapter-1-bahasa.html)
-- [Shibo endo wo Kaihishita Gyaruge no Heroine-tachi ga Ore no [Nikkicho] wo Yonde himitsu wo Shittarashii](https://zerokaito.blogspot.com/2025/09/shibo-endo-wo-kaihishita-gyaruge-no.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
