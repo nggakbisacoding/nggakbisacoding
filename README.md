@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Heroine-tachi ga Chapter SS Bahasa Indonesia](https://zerokaito.blogspot.com/2025/11/heroine-tachi-ga-chapter-ss-bahasa.html)
+- [Heroine-tachi ga Chapter 8 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/11/heroine-tachi-ga-chapter-8-bahasa.html)
 - [Heroine-tachi ga Chapter 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/11/heroine-tachi-ga-chapter-7-bahasa.html)
 - [Otonari no Tenshi-sama Volume 11.5 Chapter 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/11/otonari-no-tenshi-sama-volume-115_17.html)
 - [Heroine-tachi ga Chapter 6.4 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/11/heroine-tachi-ga-chapter-64-bahasa.html)
-- [Heroine-tachi ga Chapter 6.3 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/11/heroine-tachi-ga-chapter-63-bahasa.html)
-- [Heroine-tachi ga Chapter 6.2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/11/heroine-tachi-ga-chapter-62-bahasa.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
