@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Otonari no Tenshi-sama Volume 11.5 Chapter 8 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/11/otonari-no-tenshi-sama-volume-115_25.html)
 - [Yamai ni Itaru Koi Chapter 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/11/yamai-ni-itaru-koi-chapter-4-bahasa.html)
 - [Yamai ni Itaru Koi Chapter 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/11/yamai-ni-itaru-koi-chapter-3-bahasa.html)
 - [Yamai ni Itaru Koi Chapter 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/11/yamai-ni-itaru-koi-chapter-2-bahasa.html)
 - [Yamai ni Itaru Koi Chapter 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/11/yamai-ni-itaru-koi-chapter-1-bahasa.html)
-- [Koi ni Itaru Yamai Kata Penutup](https://zerokaito.blogspot.com/2025/11/koi-ni-itaru-yamai-kata-penutup.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
