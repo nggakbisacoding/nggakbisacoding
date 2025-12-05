@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Gimai Seikatsu Volume 15 Chapter 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/12/gimai-seikatsu-volume-15-chapter-1.html)
 - [Otonari no Tenshi-sama Volume 11.5 Chapter SS Bahasa Indonesia](https://zerokaito.blogspot.com/2025/11/otonari-no-tenshi-sama-volume-115_84.html)
 - [Otonari no Tenshi-sama Volume 11.5 Chapter 10 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/11/otonari-no-tenshi-sama-volume-115_24.html)
 - [Otonari no Tenshi-sama Volume 11.5 Chapter 9 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/11/otonari-no-tenshi-sama-volume-115_30.html)
 - [Gimai Seikatsu Volume 15 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/11/gimai-seikatsu-volume-15-prolog-bahasa.html)
-- [Gimai Seikatsu Volume 15 Ilustrasi](https://zerokaito.blogspot.com/2025/11/gimai-seikatsu-volume-15-ilustrasi.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
