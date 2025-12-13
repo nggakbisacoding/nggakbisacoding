@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [[LN] Tanin wo Yosetsukenai Vol 1 Chapter 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/12/ln-tanin-wo-yosetsukenai-vol-1-chapter_13.html)
 - [Gimai Seikatsu Volume 15 Chapter 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/12/gimai-seikatsu-volume-15-chapter-2.html)
 - [[LN] Tanin wo Yosetsukenai Vol 1 Chapter 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/12/ln-tanin-wo-yosetsukenai-vol-1-chapter.html)
 - [[LN] Tanin wo Yosetsukenai Vol 1 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2025/12/ln-tanin-wo-yosetsukenai-vol-1-prolog.html)
 - [[LN] Tanin wo Yosetsukenai Vol 1 Ilustrasi](https://zerokaito.blogspot.com/2025/12/ln-tanin-wo-yosetsukenai-vol-1-ilustrasi.html)
-- [[LN] Tanin wo Yosetsukenai Buaisouna Joshi ni Sekkyou shitara, Mechakucha Natsukareta Bahasa Indonesia](https://zerokaito.blogspot.com/2025/12/ln-tanin-wo-yosetsukenai-buaisouna.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
