@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [[LN] Saijou no Osewa Jilid 11 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2026/01/ln-saijou-no-osewa-jilid-11-prolog.html)
+- [[LN] Saijou no Osewa Jilid 11 Ilustrasi](https://zerokaito.blogspot.com/2026/01/ln-saijou-no-osewa-jilid-11-ilustrasi.html)
 - [[LN] Tanin wo Yosetsukenai Vol 2 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2026/01/ln-tanin-wo-yosetsukenai-vol-2-prolog.html)
 - [[LN] Tanin wo Yosetsukenai Vol 2 Ilustrasi](https://zerokaito.blogspot.com/2026/01/ln-tanin-wo-yosetsukenai-vol-2-ilustrasi.html)
 - [Gimai Seikatsu Volume 15 Chapter SS Bahasa Indonesia](https://zerokaito.blogspot.com/2025/12/gimai-seikatsu-volume-15-chapter-ss.html)
-- [Gimai Seikatsu Volume 15 Chapter 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/12/gimai-seikatsu-volume-15-chapter-6.html)
-- [Gimai Seikatsu Volume 15 Chapter 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2025/12/gimai-seikatsu-volume-15-chapter-5.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
