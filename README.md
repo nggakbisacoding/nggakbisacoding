@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [[LN] Tanin wo Yosetsukenai Vol 2 Chapter 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/01/ln-tanin-wo-yosetsukenai-vol-2-chapter_16.html)
 - [[LN] Saijou no Osewa Jilid 11 Bab 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/01/ln-saijou-no-osewa-jilid-11-bab-1.html)
 - [[LN] Tanin wo Yosetsukenai Vol 2 Chapter 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/01/ln-tanin-wo-yosetsukenai-vol-2-chapter.html)
 - [[LN] Saijou no Osewa Jilid 11 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2026/01/ln-saijou-no-osewa-jilid-11-prolog.html)
 - [[LN] Saijou no Osewa Jilid 11 Ilustrasi](https://zerokaito.blogspot.com/2026/01/ln-saijou-no-osewa-jilid-11-ilustrasi.html)
-- [[LN] Tanin wo Yosetsukenai Vol 2 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2026/01/ln-tanin-wo-yosetsukenai-vol-2-prolog.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
