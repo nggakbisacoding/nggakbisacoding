@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Jinsei Gyakuten Jilid 3 Bab 1.5](https://zerokaito.blogspot.com/2026/01/jinsei-gyakuten-jilid-3-bab-15.html)
+- [Jinsei Gyakuten Jilid 3 Bab 1](https://zerokaito.blogspot.com/2026/01/jinsei-gyakuten-jilid-3-bab-1.html)
+- [Jinsei Gyakuten Jilid 3 Prolog](https://zerokaito.blogspot.com/2026/01/jinsei-gyakuten-jilid-3-prolog.html)
+- [Jinsei Gyakuten Jilid 3 Ilustrasi](https://zerokaito.blogspot.com/2026/01/jinsei-gyakuten-jilid-3-ilustrasi.html)
 - [Shimotsuki-san Jilid 2 Bab 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/01/shimotsuki-san-jilid-2-bab-7-bahasa.html)
-- [[LN] Saijou no Osewa Jilid 11 Bab 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/01/ln-saijou-no-osewa-jilid-11-bab-2.html)
-- [[LN] Tanin wo Yosetsukenai Vol 2 Chapter 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/01/ln-tanin-wo-yosetsukenai-vol-2-chapter_16.html)
-- [[LN] Saijou no Osewa Jilid 11 Bab 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/01/ln-saijou-no-osewa-jilid-11-bab-1.html)
-- [[LN] Tanin wo Yosetsukenai Vol 2 Chapter 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/01/ln-tanin-wo-yosetsukenai-vol-2-chapter.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
