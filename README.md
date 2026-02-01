@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Roshidere Jilid 11 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2026/02/roshidere-jilid-11-prolog-bahasa.html)
+- [Roshidere Jilid 11 Ilustrasi](https://zerokaito.blogspot.com/2026/02/roshidere-jilid-11-ilustrasi.html)
 - [[LN] Saijou no Osewa Jilid 11 Bab SS Bahasa Indonesia](https://zerokaito.blogspot.com/2026/01/ln-saijou-no-osewa-jilid-11-bab-ss.html)
 - [[LN] Saijou no Osewa Jilid 11 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2026/01/ln-saijou-no-osewa-jilid-11-epilog.html)
 - [[LN] Saijou no Osewa Jilid 11 Bab 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/01/ln-saijou-no-osewa-jilid-11-bab-4.html)
-- [[LN] Tanin wo Yosetsukenai Vol 2 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2026/01/ln-tanin-wo-yosetsukenai-vol-2-epilog.html)
-- [[LN] Tanin wo Yosetsukenai Vol 2 Chapter 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/01/ln-tanin-wo-yosetsukenai-vol-2-chapter_30.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
