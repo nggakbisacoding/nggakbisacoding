@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Jinsei Gyakuten Jilid 3 Bab 3](https://zerokaito.blogspot.com/2026/02/jinsei-gyakuten-jilid-3-bab-3.html)
+- [Jinsei Gyakuten Jilid 3 Bab 2.5](https://zerokaito.blogspot.com/2026/02/jinsei-gyakuten-jilid-3-bab-25.html)
 - [Roshidere Jilid 11 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2026/02/roshidere-jilid-11-prolog-bahasa.html)
 - [Roshidere Jilid 11 Ilustrasi](https://zerokaito.blogspot.com/2026/02/roshidere-jilid-11-ilustrasi.html)
 - [[LN] Saijou no Osewa Jilid 11 Bab SS Bahasa Indonesia](https://zerokaito.blogspot.com/2026/01/ln-saijou-no-osewa-jilid-11-bab-ss.html)
-- [[LN] Saijou no Osewa Jilid 11 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2026/01/ln-saijou-no-osewa-jilid-11-epilog.html)
-- [[LN] Saijou no Osewa Jilid 11 Bab 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/01/ln-saijou-no-osewa-jilid-11-bab-4.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
