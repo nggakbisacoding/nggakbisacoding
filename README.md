@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Roshidere Jilid 11 Chapter 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/02/roshidere-jilid-11-chapter-1-bahasa.html)
 - [Bad-end go no Heroine Vol 3 Chapter 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/02/bad-end-go-no-heroine-vol-3-chapter-1.html)
 - [Bad-end go no Heroine Vol 3 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2026/02/bad-end-go-no-heroine-vol-3-prolog.html)
 - [Bad-end go no Heroine Vol 3 Ilustrasi](https://zerokaito.blogspot.com/2026/02/bad-end-go-no-heroine-vol-3-ilustrasi.html)
 - [Jinsei Gyakuten Jilid 3 Bab 3](https://zerokaito.blogspot.com/2026/02/jinsei-gyakuten-jilid-3-bab-3.html)
-- [Jinsei Gyakuten Jilid 3 Bab 2.5](https://zerokaito.blogspot.com/2026/02/jinsei-gyakuten-jilid-3-bab-25.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
