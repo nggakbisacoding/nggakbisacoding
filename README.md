@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Downer-kei Gyaru Chapter 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/03/downer-kei-gyaru-chapter-5-bahasa.html)
 - [Roshidere Jilid 11 Chapter 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/03/roshidere-jilid-11-chapter-7-bahasa.html)
 - [Bad-end go no Heroine Vol 3 Chapter 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/03/bad-end-go-no-heroine-vol-3-chapter-7.html)
 - [Downer-kei Gyaru Chapter 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/03/downer-kei-gyaru-chapter-4-bahasa.html)
 - [Roshidere Jilid 11 Chapter 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/03/roshidere-jilid-11-chapter-6-bahasa.html)
-- [Bad-end go no Heroine Vol 3 Chapter 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/03/bad-end-go-no-heroine-vol-3-chapter-6.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
