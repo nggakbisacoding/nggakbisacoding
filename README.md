@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Bad-end go no Heroine Vol 3 Chapter 8 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/03/bad-end-go-no-heroine-vol-3-chapter-8.html)
 - [Shimotsuki-san Jilid 2 Bab Bonus Bahasa Indonesia](https://zerokaito.blogspot.com/2026/03/shimotsuki-san-jilid-2-bab-bonus-bahasa.html)
 - [Shimotsuki-san Jilid 2 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2026/03/shimotsuki-san-jilid-2-epilog-bahasa.html)
 - [Shimotsuki-san Jilid 2 Bab 11 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/03/shimotsuki-san-jilid-2-bab-11-bahasa.html)
 - [Shimotsuki-san Jilid 2 Bab 10 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/03/shimotsuki-san-jilid-2-bab-10-bahasa.html)
-- [Downer-kei Gyaru Chapter 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/03/downer-kei-gyaru-chapter-5-bahasa.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
