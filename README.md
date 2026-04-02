@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Bad-end go no Heroine Vol 3 Chapter 9.5 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/04/bad-end-go-no-heroine-vol-3-chapter-95.html)
+- [Bad-end go no Heroine Vol 3 Chapter 9 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/04/bad-end-go-no-heroine-vol-3-chapter-9.html)
 - [Kawaii Tanaka-san Vol 1 Chapter 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/04/kawaii-tanaka-san-vol-1-chapter-2.html)
 - [Kawaii Tanaka-san Vol 1 Chapter 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/04/kawaii-tanaka-san-vol-1-chapter-1.html)
 - [Kawaii Tanaka-san Vol 1 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2026/04/kawaii-tanaka-san-vol-1-prolog-bahasa.html)
-- [Kawaii Tanaka-san Vol 1 Ilustrasi](https://zerokaito.blogspot.com/2026/04/kawaii-tanaka-san-vol-1-ilustrasi.html)
-- [Main Heroine yori Kawaii Mob no Tanaka-san Bahasa Indonesia](https://zerokaito.blogspot.com/2026/04/main-heroine-yori-kawaii-mob-no-tanaka.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
