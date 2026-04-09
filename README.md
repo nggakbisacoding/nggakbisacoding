@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Kawaii Tanaka-san Vol 1 Chapter 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/04/kawaii-tanaka-san-vol-1-chapter-5.html)
 - [Downer-kei Gyaru Chapter 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/04/downer-kei-gyaru-chapter-7-bahasa.html)
 - [Kawaii Tanaka-san Vol 1 Chapter 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/04/kawaii-tanaka-san-vol-1-chapter-4.html)
 - [Kawaii Tanaka-san Vol 1 Chapter 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/04/kawaii-tanaka-san-vol-1-chapter-3.html)
 - [Gimai Seikatsu Volume 16 Chapter 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/04/gimai-seikatsu-volume-16-chapter-1.html)
-- [Gimai Seikatsu Volume 16 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2026/04/gimai-seikatsu-volume-16-prolog-bahasa.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
