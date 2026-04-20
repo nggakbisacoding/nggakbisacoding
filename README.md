@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Downer-kei Gyaru Chapter 9.5 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/04/downer-kei-gyaru-chapter-95-bahasa.html)
+- [Downer-kei Gyaru Chapter 9 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/04/downer-kei-gyaru-chapter-9-bahasa.html)
 - [Kawaii Tanaka-san Vol 1 Chapter 10 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/04/kawaii-tanaka-san-vol-1-chapter-10.html)
 - [Kawaii Tanaka-san Vol 1 Chapter 9 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/04/kawaii-tanaka-san-vol-1-chapter-9.html)
 - [Gimai Seikatsu Volume 16 Selingan Bahasa Indonesia](https://zerokaito.blogspot.com/2026/04/gimai-seikatsu-volume-16-selingan.html)
-- [Gimai Seikatsu Volume 16 Chapter 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/04/gimai-seikatsu-volume-16-chapter-3.html)
-- [Kawaii Tanaka-san Vol 1 Chapter 8 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/04/kawaii-tanaka-san-vol-1-chapter-8.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
