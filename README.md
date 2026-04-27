@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Kawaii Tanaka-san Vol 1 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2026/04/kawaii-tanaka-san-vol-1-epilog-bahasa.html)
+- [Kawaii Tanaka-san Vol 1 Chapter 16 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/04/kawaii-tanaka-san-vol-1-chapter-16.html)
+- [Kawaii Tanaka-san Vol 1 Chapter 15 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/04/kawaii-tanaka-san-vol-1-chapter-15.html)
 - [Kawaii Tanaka-san Vol 1 Chapter 14 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/04/kawaii-tanaka-san-vol-1-chapter-14.html)
 - [Kawaii Tanaka-san Vol 1 Chapter 13 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/04/kawaii-tanaka-san-vol-1-chapter-13.html)
-- [Gimai Seikatsu Volume 16 Chapter 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/04/gimai-seikatsu-volume-16-chapter-4.html)
-- [Kawaii Tanaka-san Vol 1 Chapter 12 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/04/kawaii-tanaka-san-vol-1-chapter-12.html)
-- [Bad-end go no Heroine Vol 3 Chapter 12 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/04/bad-end-go-no-heroine-vol-3-chapter-12.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
