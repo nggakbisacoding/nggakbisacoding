@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Gimai Seikatsu Volume 16 Selingan 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/05/gimai-seikatsu-volume-16-selingan-2.html)
+- [Gimai Seikatsu Volume 16 Chapter 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/05/gimai-seikatsu-volume-16-chapter-5.html)
 - [Bad-end go no Heroine Vol 3 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2026/04/bad-end-go-no-heroine-vol-3-epilog.html)
 - [Bad-end go no Heroine Vol 3 Chapter 13 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/04/bad-end-go-no-heroine-vol-3-chapter-13.html)
 - [Downer-kei Gyaru Chapter 11 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/04/downer-kei-gyaru-chapter-11-bahasa.html)
-- [Downer-kei Gyaru Chapter 10 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/04/downer-kei-gyaru-chapter-10-bahasa.html)
-- [Kawaii Tanaka-san Vol 1 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2026/04/kawaii-tanaka-san-vol-1-epilog-bahasa.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
