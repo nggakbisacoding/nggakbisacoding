@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Tenshi-sama Volume 12 Chapter 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/05/tenshi-sama-volume-12-chapter-1-bahasa.html)
 - [Tenshi-sama Volume 12 Ilustrasi](https://zerokaito.blogspot.com/2026/05/tenshi-sama-volume-12-ilustrasi.html)
 - [Gimai Seikatsu Volume 16 Selingan 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/05/gimai-seikatsu-volume-16-selingan-2.html)
 - [Gimai Seikatsu Volume 16 Chapter 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/05/gimai-seikatsu-volume-16-chapter-5.html)
 - [Bad-end go no Heroine Vol 3 Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2026/04/bad-end-go-no-heroine-vol-3-epilog.html)
-- [Bad-end go no Heroine Vol 3 Chapter 13 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/04/bad-end-go-no-heroine-vol-3-chapter-13.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
