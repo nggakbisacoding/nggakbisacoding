@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Kodoku na Kanojo Chapter 2.5 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/05/kodoku-na-kanojo-chapter-25-bahasa.html)
+- [Kodoku na Kanojo Chapter 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/05/kodoku-na-kanojo-chapter-2-bahasa.html)
 - [Gimai Seikatsu Volume 16 Chapter 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/05/gimai-seikatsu-volume-16-chapter-6.html)
 - [Tenshi-sama Volume 12 Chapter 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/05/tenshi-sama-volume-12-chapter-2-bahasa.html)
 - [Kodoku na Kanojo Chapter 1.5 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/05/kodoku-na-kanojo-chapter-15-bahasa.html)
-- [Kodoku na Kanojo Chapter 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/05/kodoku-na-kanojo-chapter-1-bahasa.html)
-- [Kodoku na Kanojo Ilustrasi](https://zerokaito.blogspot.com/2026/05/kodoku-na-kanojo-ilustrasi.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
