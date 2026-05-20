@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Shibo End Vol 2 Chapter 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/05/shibo-end-vol-2-chapter-1-bahasa.html)
+- [Shibo End Vol 2 Ilustrasi](https://zerokaito.blogspot.com/2026/05/shibo-end-vol-2-ilustrasi.html)
 - [Kodoku na Kanojo Chapter 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/05/kodoku-na-kanojo-chapter-3-bahasa.html)
 - [Gimai Seikatsu Volume 16 SS Bahasa Indonesia](https://zerokaito.blogspot.com/2026/05/gimai-seikatsu-volume-16-ss-bahasa.html)
 - [Gimai Seikatsu Volume 16 Chapter 7 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/05/gimai-seikatsu-volume-16-chapter-7.html)
-- [Tenshi-sama Volume 12 Chapter 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/05/tenshi-sama-volume-12-chapter-3-bahasa.html)
-- [Kodoku na Kanojo Chapter 2.5 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/05/kodoku-na-kanojo-chapter-25-bahasa.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
