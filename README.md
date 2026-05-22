@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Shibo End Vol 2 Chapter 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/05/shibo-end-vol-2-chapter-3-bahasa.html)
 - [Tenshi-sama Volume 12 Chapter 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/05/tenshi-sama-volume-12-chapter-4-bahasa.html)
 - [Shibo End Vol 2 Chapter 2.4 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/05/shibo-end-vol-2-chapter-24-bahasa.html)
 - [Shibo End Vol 2 Chapter 2.3 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/05/shibo-end-vol-2-chapter-23-bahasa.html)
 - [Shibo End Vol 2 Chapter 2.2 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/05/shibo-end-vol-2-chapter-22-bahasa.html)
-- [Shibo End Vol 2 Chapter 2.1 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/05/shibo-end-vol-2-chapter-21-bahasa.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
