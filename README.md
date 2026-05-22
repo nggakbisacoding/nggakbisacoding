@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
-- [Shibo End Vol 2 Chapter 3 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/05/shibo-end-vol-2-chapter-3-bahasa.html)
-- [Tenshi-sama Volume 12 Chapter 4 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/05/tenshi-sama-volume-12-chapter-4-bahasa.html)
-- [Shibo End Vol 2 Chapter 2.4 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/05/shibo-end-vol-2-chapter-24-bahasa.html)
-- [Shibo End Vol 2 Chapter 2.3 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/05/shibo-end-vol-2-chapter-23-bahasa.html)
-- [Shibo End Vol 2 Chapter 2.2 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/05/shibo-end-vol-2-chapter-22-bahasa.html)
+- [Tenshi-sama Volume 12 Kata Penutup](https://zerokaito.blogspot.com/2026/05/tenshi-sama-volume-12-kata-penutup.html)
+- [Tenshi-sama Volume 12 Chapter 9 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/05/tenshi-sama-volume-12-chapter-9-bahasa.html)
+- [Shibo End Vol 2 Kata Penutup](https://zerokaito.blogspot.com/2026/05/shibo-end-vol-2-kata-penutup.html)
+- [Shibo End Vol 2 Chapter 8 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/05/shibo-end-vol-2-chapter-8-bahasa.html)
+- [Kodoku na Kanojo Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2026/05/kodoku-na-kanojo-epilog-bahasa-indonesia.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
