@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Isekai Alya-san Chapter 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/06/isekai-alya-san-chapter-1-bahasa.html)
 - [Isekai Alya-san Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2026/06/isekai-alya-san-prolog-bahasa-indonesia.html)
 - [Isekai Alya-san Ilustrasi](https://zerokaito.blogspot.com/2026/06/isekai-alya-san-ilustrasi.html)
 - [Tenshi-sama Volume 12 Kata Penutup](https://zerokaito.blogspot.com/2026/05/tenshi-sama-volume-12-kata-penutup.html)
 - [Tenshi-sama Volume 12 Chapter 9 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/05/tenshi-sama-volume-12-chapter-9-bahasa.html)
-- [Shibo End Vol 2 Kata Penutup](https://zerokaito.blogspot.com/2026/05/shibo-end-vol-2-kata-penutup.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
