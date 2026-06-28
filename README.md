@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Gimai Seikatsu Volume 17 Prolog](https://zerokaito.blogspot.com/2026/06/gimai-seikatsu-volume-17-prolog.html)
+- [Gimai Seikatsu Volume 17 Ilustrasi](https://zerokaito.blogspot.com/2026/06/gimai-seikatsu-volume-17-ilustrasi.html)
 - [Isekai Alya-san Chapter 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/06/isekai-alya-san-chapter-1-bahasa.html)
 - [Isekai Alya-san Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2026/06/isekai-alya-san-prolog-bahasa-indonesia.html)
 - [Isekai Alya-san Ilustrasi](https://zerokaito.blogspot.com/2026/06/isekai-alya-san-ilustrasi.html)
-- [Tenshi-sama Volume 12 Kata Penutup](https://zerokaito.blogspot.com/2026/05/tenshi-sama-volume-12-kata-penutup.html)
-- [Tenshi-sama Volume 12 Chapter 9 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/05/tenshi-sama-volume-12-chapter-9-bahasa.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
