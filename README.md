@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Jinsei Gyakuten Jilid 4 Prolog](https://zerokaito.blogspot.com/2026/07/jinsei-gyakuten-jilid-4-prolog.html)
+- [Jinsei Gyakuten Jilid 4 Ilustrasi](https://zerokaito.blogspot.com/2026/07/jinsei-gyakuten-jilid-4-ilustrasi.html)
 - [Isekai Alya-san Chapter 2 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/07/isekai-alya-san-chapter-2-bahasa.html)
 - [Gimai Seikatsu Volume 17 Prolog](https://zerokaito.blogspot.com/2026/06/gimai-seikatsu-volume-17-prolog.html)
 - [Gimai Seikatsu Volume 17 Ilustrasi](https://zerokaito.blogspot.com/2026/06/gimai-seikatsu-volume-17-ilustrasi.html)
-- [Isekai Alya-san Chapter 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/06/isekai-alya-san-chapter-1-bahasa.html)
-- [Isekai Alya-san Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2026/06/isekai-alya-san-prolog-bahasa-indonesia.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
