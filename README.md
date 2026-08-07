@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Jinsei Gyakuten Jilid 4 Bab 4.5](https://zerokaito.blogspot.com/2026/08/jinsei-gyakuten-jilid-4-bab-45.html)
+- [Jinsei Gyakuten Jilid 4 Bab 4](https://zerokaito.blogspot.com/2026/08/jinsei-gyakuten-jilid-4-bab-4.html)
 - [Isekai Alya-san Chapter 6 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/08/isekai-alya-san-chapter-6-bahasa.html)
 - [Jinsei Gyakuten Jilid 4 Bab 3.5](https://zerokaito.blogspot.com/2026/07/jinsei-gyakuten-jilid-4-bab-35.html)
 - [Jinsei Gyakuten Jilid 4 Bab 3](https://zerokaito.blogspot.com/2026/07/jinsei-gyakuten-jilid-4-bab-3.html)
-- [Isekai Alya-san Chapter 5 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/07/isekai-alya-san-chapter-5-bahasa.html)
-- [Jinsei Gyakuten Jilid 4 Bab 2.5](https://zerokaito.blogspot.com/2026/07/jinsei-gyakuten-jilid-4-bab-25.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
