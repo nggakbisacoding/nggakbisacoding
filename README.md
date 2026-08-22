@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Jinsei Gyakuten Jilid 4 Kata Penutup](https://zerokaito.blogspot.com/2026/08/jinsei-gyakuten-jilid-4-kata-penutup.html)
+- [Jinsei Gyakuten Jilid 4 Epilog](https://zerokaito.blogspot.com/2026/08/jinsei-gyakuten-jilid-4-epilog.html)
+- [Jinsei Gyakuten Jilid 4 Bab 6](https://zerokaito.blogspot.com/2026/08/jinsei-gyakuten-jilid-4-bab-6.html)
 - [Gimai Seikatsu Volume 17 Chapter 1.5](https://zerokaito.blogspot.com/2026/08/gimai-seikatsu-volume-17-chapter-15.html)
 - [Gimai Seikatsu Volume 17 Chapter 1](https://zerokaito.blogspot.com/2026/08/gimai-seikatsu-volume-17-chapter-1.html)
-- [Jinsei Gyakuten Jilid 4 Bab 5.5](https://zerokaito.blogspot.com/2026/08/jinsei-gyakuten-jilid-4-bab-55.html)
-- [Jinsei Gyakuten Jilid 4 Bab 5](https://zerokaito.blogspot.com/2026/08/jinsei-gyakuten-jilid-4-bab-5.html)
-- [Isekai Alya-san Epilog Bahasa Indonesia](https://zerokaito.blogspot.com/2026/08/isekai-alya-san-epilog-bahasa-indonesia.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
