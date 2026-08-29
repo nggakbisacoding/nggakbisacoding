@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Gimai Seikatsu Volume 17 Chapter 3](https://zerokaito.blogspot.com/2026/08/gimai-seikatsu-volume-17-chapter-3.html)
 - [Gimai Seikatsu Volume 17 Chapter 2](https://zerokaito.blogspot.com/2026/08/gimai-seikatsu-volume-17-chapter-2.html)
 - [Jinsei Gyakuten Jilid 4 Kata Penutup](https://zerokaito.blogspot.com/2026/08/jinsei-gyakuten-jilid-4-kata-penutup.html)
 - [Jinsei Gyakuten Jilid 4 Epilog](https://zerokaito.blogspot.com/2026/08/jinsei-gyakuten-jilid-4-epilog.html)
 - [Jinsei Gyakuten Jilid 4 Bab 6](https://zerokaito.blogspot.com/2026/08/jinsei-gyakuten-jilid-4-bab-6.html)
-- [Gimai Seikatsu Volume 17 Chapter 1.5](https://zerokaito.blogspot.com/2026/08/gimai-seikatsu-volume-17-chapter-15.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
