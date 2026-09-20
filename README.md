@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
-- [Gimai Seikatsu Volume 17 Chapter 7](https://zerokaito.blogspot.com/2026/09/gimai-seikatsu-volume-17-chapter-7.html)
-- [Gimai Seikatsu Volume 17 Chapter 6.5](https://zerokaito.blogspot.com/2026/09/gimai-seikatsu-volume-17-chapter-65.html)
-- [Gimai Seikatsu Volume 17 Chapter 6](https://zerokaito.blogspot.com/2026/09/gimai-seikatsu-volume-17-chapter-6.html)
-- [Gimai Seikatsu Volume 17 Chapter 5.5](https://zerokaito.blogspot.com/2026/09/gimai-seikatsu-volume-17-chapter-55.html)
-- [Gimai Seikatsu Volume 17 Chapter 5](https://zerokaito.blogspot.com/2026/09/gimai-seikatsu-volume-17-chapter-5.html)
+- [[LN] Saijou no Osewa Jilid 12 Kata Penutup](https://zerokaito.blogspot.com/2026/09/ln-saijou-no-osewa-jilid-12-kata-penutup.html)
+- [[LN] Saijou no Osewa Jilid 12 Epilog](https://zerokaito.blogspot.com/2026/09/ln-saijou-no-osewa-jilid-12-epilog.html)
+- [[LN] Saijou no Osewa Jilid 12 Bab 4](https://zerokaito.blogspot.com/2026/09/ln-saijou-no-osewa-jilid-12-bab-4.html)
+- [[LN] Saijou no Osewa Jilid 12 Bab 3](https://zerokaito.blogspot.com/2026/09/ln-saijou-no-osewa-jilid-12-bab-3.html)
+- [[LN] Saijou no Osewa Jilid 12 Bab 2](https://zerokaito.blogspot.com/2026/09/ln-saijou-no-osewa-jilid-12-bab-2.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
