@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Roshidere Jilid 12 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2026/10/roshidere-jilid-12-prolog-bahasa.html)
+- [Roshidere Jilid 12 Ilustrasi](https://zerokaito.blogspot.com/2026/10/roshidere-jilid-12-ilustrasi.html)
+- [Shibo End Vol 3 Chapter 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/10/shibo-end-vol-3-chapter-1-bahasa.html)
+- [Shibo End Vol 3 Ilustrasi](https://zerokaito.blogspot.com/2026/10/shibo-end-vol-3-ilustrasi.html)
 - [[LN] Saijou no Osewa Jilid 12 Kata Penutup](https://zerokaito.blogspot.com/2026/09/ln-saijou-no-osewa-jilid-12-kata-penutup.html)
-- [[LN] Saijou no Osewa Jilid 12 Epilog](https://zerokaito.blogspot.com/2026/09/ln-saijou-no-osewa-jilid-12-epilog.html)
-- [[LN] Saijou no Osewa Jilid 12 Bab 4](https://zerokaito.blogspot.com/2026/09/ln-saijou-no-osewa-jilid-12-bab-4.html)
-- [[LN] Saijou no Osewa Jilid 12 Bab 3](https://zerokaito.blogspot.com/2026/09/ln-saijou-no-osewa-jilid-12-bab-3.html)
-- [[LN] Saijou no Osewa Jilid 12 Bab 2](https://zerokaito.blogspot.com/2026/09/ln-saijou-no-osewa-jilid-12-bab-2.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
