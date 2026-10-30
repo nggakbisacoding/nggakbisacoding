@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Gimai Seikatsu Volume 18 Ilustrasi](https://zerokaito.blogspot.com/2026/10/gimai-seikatsu-volume-18-ilustrasi.html)
 - [Roshidere Jilid 12 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2026/10/roshidere-jilid-12-prolog-bahasa.html)
 - [Roshidere Jilid 12 Ilustrasi](https://zerokaito.blogspot.com/2026/10/roshidere-jilid-12-ilustrasi.html)
 - [Shibo End Vol 3 Chapter 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/10/shibo-end-vol-3-chapter-1-bahasa.html)
 - [Shibo End Vol 3 Ilustrasi](https://zerokaito.blogspot.com/2026/10/shibo-end-vol-3-ilustrasi.html)
-- [[LN] Saijou no Osewa Jilid 12 Kata Penutup](https://zerokaito.blogspot.com/2026/09/ln-saijou-no-osewa-jilid-12-kata-penutup.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
