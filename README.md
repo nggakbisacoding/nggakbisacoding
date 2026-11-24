@@ -70,11 +70,11 @@
 
 ## 🏷 Novel Updated
 <!-- BLOG-POST-LIST:START -->
+- [Tenshi-sama Volume 13 Ilustrasi](https://zerokaito.blogspot.com/2026/11/tenshi-sama-volume-13-ilustrasi.html)
 - [Roshidere Jilid 12 Chapter 1 Bahasa Indonesia](https://zerokaito.blogspot.com/2026/11/roshidere-jilid-12-chapter-1-bahasa.html)
 - [Gimai Seikatsu Volume 18 Prolog](https://zerokaito.blogspot.com/2026/11/gimai-seikatsu-volume-18-prolog.html)
 - [Gimai Seikatsu Volume 18 Ilustrasi](https://zerokaito.blogspot.com/2026/10/gimai-seikatsu-volume-18-ilustrasi.html)
 - [Roshidere Jilid 12 Prolog Bahasa Indonesia](https://zerokaito.blogspot.com/2026/10/roshidere-jilid-12-prolog-bahasa.html)
-- [Roshidere Jilid 12 Ilustrasi](https://zerokaito.blogspot.com/2026/10/roshidere-jilid-12-ilustrasi.html)
 <!-- BLOG-POST-LIST:END -->
 
 ## 📃 Things (to / wanna) do: 
